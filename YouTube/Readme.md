@@ -13,5 +13,5 @@
       - 동시대비(생상, 채도, 보색, 명도, 면적,  ...)
       - 계시대비
     - 참고문헌
-      - <img src="
+      - <img src="https://user-images.githubusercontent.com/54765256/98746600-25075b00-23f9-11eb-8a9e-985edbe67866.png">
     
