@@ -5,4 +5,4 @@
   - https://www.youtube.com/watch?v=BDpqt-haLLM
 
 ## University
-* 국립한경대학교 디자인학과(https://www.youtube.com/c/nknudesign)
+* 국립한경대학교 디자인학과(https://www.youtube.com/c/knudesign)
