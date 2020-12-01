@@ -10,4 +10,7 @@
 * Kyle Staver New Paintings at ZÜRCHER GALLERY(https://www.youtube.com/watch?v=WhLXPBrXxho)
   - https://en.wikipedia.org/wiki/Kyle_Staver
   
+## Artsy
+* 19 Collectors on the Art They Bought in 2020
+  - https://www.artsy.net/article/artsy-editorial-19-collectors-art-bought-2020?utm_medium=email&utm_source=sailthru&utm_campaign=ms&utm_content=list-11-30-20&utm_term=22245943
   
