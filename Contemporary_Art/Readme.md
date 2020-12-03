@@ -3,6 +3,10 @@
 ##
 
 ## Artists
+
+* Daniel Richter (German, b. 1962), Masters of Junkies of Darkness, 2017. Oil on canvas, 200 x 270 cm
+  - <img src="https://64.media.tumblr.com/459e0fa5ac057348d52a9beb3512f22b/93ccfaa06de245cc-c6/s2048x3072/3a69410964cdba304b8db072091ffbc736339cb3.jpg">
+
 * Cecily Brown at PAULA COOPER GALLERY(https://www.youtube.com/watch?v=QYaPAaNY360)
   - Cecily Brown (born 1969[1]) is a British painter. Her style displays the influence of a variety of painters, from Francisco de Goya, Willem de Kooning, Francis Bacon[2] and Joan Mitchell, to Old Masters like Rubens and Poussin, yet her works also present a distinctly female viewpoint.[3][4] Brown lives and works in New York City.[5][6]
    - https://en.wikipedia.org/wiki/Cecily_Brown
