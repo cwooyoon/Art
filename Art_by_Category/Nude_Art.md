@@ -6,6 +6,7 @@
 
 * Arthur Weir  1864-1902
 <img src="https://64.media.tumblr.com/4d4b79b0b254977355ca42ee6d6a9383/0da5277c1cc90563-df/s2048x3072/e886283860e2f8d9fbb628ea3712984b4533fe40.jpg">
+
 ```
 Sleep, dearest, sleep beside the murmuring sea;
 Sleep, dearest, sleep, and bright dreams compass thee.
@@ -24,12 +25,13 @@ Sleep, dearest, sleep; our souls still intertwine.
 Yon radiant star that on thy couch doth shine
 Bears from my lips a kiss to lay on thine.
 Sleep, Bright Eyes, sleep.
-—-
+
 In Absence
 Arthur Weir  1864-1902
-—-
+
 Graphic - Isabel Codrington  1874-1943
 ```
+
 
 * Svetlana Shebarshina (Russian, *1984, http://svetashebarshina.ru/)
 <img src="https://64.media.tumblr.com/d31920d569cad7ff4eff3543b44a5c83/tumblr_p5rau9VR3S1rhn4rdo1_1280.jpg">
