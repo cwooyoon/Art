@@ -1,3 +1,6 @@
+* Józef Klochowicz (1888-1925). Female nude.1908. National Museum in Kraków.
+<img src="https://64.media.tumblr.com/0c4263dccc6a827d381a9dc7d5a6b855/f7fd34d049bc3764-f3/s1280x1920/2f17c1b4d34b74051392c9f650736e3bc351e20a.jpg">
+
 * “Embodiment” ~  Denis Sarazhin
 <img src="https://64.media.tumblr.com/3bcde1354d3515bbe7aeadfc9756697a/a9379b8560039885-59/s1280x1920/1a09f32f01acc1413c73570a6cc8aa3683d05664.jpg">
 
