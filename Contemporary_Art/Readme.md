@@ -3,7 +3,9 @@
 ##
 
 ## Artists
-
+* Harry Holland https://harry-holland.com/recent-works
+  - <img src="https://64.media.tumblr.com/46b57909fd7c0aa2779d7fd24bfd77d4/774a06082e0f64a7-f1/s2048x3072/6d75bbbe5079a34a5cb9b598da53c5da5f1cb0c7.jpg">
+  
 * Daniel Richter (German, b. 1962), Masters of Junkies of Darkness, 2017. Oil on canvas, 200 x 270 cm
   - <img src="https://64.media.tumblr.com/459e0fa5ac057348d52a9beb3512f22b/93ccfaa06de245cc-c6/s2048x3072/3a69410964cdba304b8db072091ffbc736339cb3.jpg">
 
