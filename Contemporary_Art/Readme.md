@@ -21,18 +21,20 @@ Time, 2010
 Charcoal on paper  
 66 7/8 x 52¾ in. | 170 x 134 cm.
 
-https://64.media.tumblr.com/4c5e47d42d2097a2e16eb4461f357d11/71e35578cbaf1f98-12/s1280x1920/74cb55240728470dbaff81f236dbb738b32ea514.jpg
+  - <img src="https://64.media.tumblr.com/4c5e47d42d2097a2e16eb4461f357d11/71e35578cbaf1f98-12/s1280x1920/74cb55240728470dbaff81f236dbb738b32ea514.jpg">
 
-British, b. 1970  
-
+  - British, b. 1970  
 Mother and Child (After the Leonardo Cartoon), 2009
-
 Charcoal on watercolor paper 
 59 x 47 in. | 149.8 x 109.4 cm.
 
-https://64.media.tumblr.com/284cbebc426c80fdf07284fada6aee41/3ef18dcd5560c1ab-8b/s2048x3072/088a5291292eadfd7b4be54d41da7f3ae2607ab4.jpg
+- <img src="https://64.media.tumblr.com/284cbebc426c80fdf07284fada6aee41/3ef18dcd5560c1ab-8b/s2048x3072/088a5291292eadfd7b4be54d41da7f3ae2607ab4.jpg">
 
+  - Propped, 1992
+Oil on canvas
+84 × 72 inches
 
+  - <img src="https://64.media.tumblr.com/a9f6ab60ff86887b772ceec66109bbd4/tumblr_py1hcpbATk1qcy73co1_1280.jpg">
 
 * Harry Holland https://harry-holland.com/recent-works
   - <img src="https://64.media.tumblr.com/46b57909fd7c0aa2779d7fd24bfd77d4/774a06082e0f64a7-f1/s2048x3072/6d75bbbe5079a34a5cb9b598da53c5da5f1cb0c7.jpg">
