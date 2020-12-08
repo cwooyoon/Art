@@ -11,6 +11,11 @@ SHIFT, 1996/97
 Oil on canvas 
 330.2 x 330.2 cm. | 130 x 130 in.
   - <img src="https://64.media.tumblr.com/fd331c4bdde4bd4ad3bc1bf74c463710/tumblr_pxuzschAus1qcy73co1_1280.jpg">
+  - B. 1970, British. 
+JUNCTURE, 1994  
+Oil on canvas 
+305.1 x 168.3 cm. | 120 1/8 x 66 ¼ in.
+  - <img src="https://64.media.tumblr.com/cc0d11fea79870e841f252fe249e492b/4cbf92e1a225f72f-c1/s2048x3072/c7448f652816512053fcfca231a5ca75cb08e062.jpg">
   
 * Harry Holland https://harry-holland.com/recent-works
   - <img src="https://64.media.tumblr.com/46b57909fd7c0aa2779d7fd24bfd77d4/774a06082e0f64a7-f1/s2048x3072/6d75bbbe5079a34a5cb9b598da53c5da5f1cb0c7.jpg">
