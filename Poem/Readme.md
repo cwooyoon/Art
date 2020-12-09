@@ -1,3 +1,6 @@
+## Ursula K. Le Guin, The Lathe of Heaven (via quotespile)
+* Love doesn’t just sit there, like a stone, it has to be made, like bread; remade all the time, made new.
+
 <img src="https://64.media.tumblr.com/5e1fa4fd49db6feb9bfdadb9b6f8a8b4/tumblr_n7y79zTlMp1qz6f9yo1_1280.jpg">
 
 ## The Purity of Kiss
