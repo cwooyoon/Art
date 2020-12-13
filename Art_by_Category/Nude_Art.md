@@ -1,3 +1,6 @@
+^ PER LASSON KROHG
+<img src="https://64.media.tumblr.com/c53223d08e30470b57a4d89f8f011194/65194f15e21b29f5-95/s1280x1920/0c2d6fe349296798c950926b2ce1ad284d14cc9f.jpg">
+
 * Józef Klochowicz (1888-1925). Female nude.1908. National Museum in Kraków.
 <img src="https://64.media.tumblr.com/0c4263dccc6a827d381a9dc7d5a6b855/f7fd34d049bc3764-f3/s1280x1920/2f17c1b4d34b74051392c9f650736e3bc351e20a.jpg">
 
