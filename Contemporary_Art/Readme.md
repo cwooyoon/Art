@@ -1,10 +1,10 @@
 # Contemporary Art
 
 ## Contemportary Artist
-https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/Contemporary_Art.md
+[Contemporary Artist](https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/Contemporary_Art.md)
 
 ## Contemporary Art: 동시대 미술 강연
-https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/%EB%8F%99%EC%8B%9C%EB%8C%80%EB%AF%B8%EC%88%A0.md
+[동시대미술 강연](https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/%EB%8F%99%EC%8B%9C%EB%8C%80%EB%AF%B8%EC%88%A0.md)
 
 ## Modern Art: 현대미술 
-https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/%ED%98%84%EB%8C%80%EB%AF%B8%EC%88%A0%20%EA%B0%9C%EB%85%90.md
+[현대미술 개념](https://github.com/cwooyoon/Art/blob/master/Contemporary_Art/%ED%98%84%EB%8C%80%EB%AF%B8%EC%88%A0%20%EA%B0%9C%EB%85%90.md)
