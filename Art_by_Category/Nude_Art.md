@@ -1,3 +1,9 @@
+* Bill Brauer
+<img src="https://64.media.tumblr.com/bbeac25ae1641ba734fcf3536da3a3ea/26fc049d53621c3a-d0/s500x750/252d401533d9fded2a37485568fd1e3c6b8e1b03.jpg">
+
+* Kent Williams    Topsy-Turvy [2014]
+<img src="https://64.media.tumblr.com/1af3cb509d170cd142929fec2678dab6/f704819c8079cf60-76/s1280x1920/f2b05b0f6f23fdf8bea12443b9abb7c95fb65d4f.jpg">
+
 * Nicolas Uribe
 <img src="https://64.media.tumblr.com/852ccaa188295e42e6d715cf04f61aaf/tumblr_mshd37V1YL1qitcpbo1_1280.jpg">
 
