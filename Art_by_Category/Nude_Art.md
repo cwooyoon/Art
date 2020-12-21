@@ -1,3 +1,6 @@
+* Butterflies -  Reinhold Max Eichler
+<img src="https://64.media.tumblr.com/e7baa091f02de4545233ed63232affc8/25880e3cc2ae752f-ea/s2048x3072/5dde77f4862c58699b6d70f8548067d5cbf1b79e.jpg">
+
 * Bill Brauer
 <img src="https://64.media.tumblr.com/bbeac25ae1641ba734fcf3536da3a3ea/26fc049d53621c3a-d0/s500x750/252d401533d9fded2a37485568fd1e3c6b8e1b03.jpg">
 
