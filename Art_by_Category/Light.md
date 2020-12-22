@@ -1,4 +1,7 @@
-*Firelight, 1893, Frank W. Benson
+* Leo Putz
+<img src="https://64.media.tumblr.com/f52c9986fac1c17e86929e8cc379fa7e/711274ab434c5249-8c/s2048x3072/e0364c714f4ab731494ce01ea9a042941d28a914.jpg">
+
+* Firelight, 1893, Frank W. Benson
 https://www.wikiart.org/en/frank-w-benson/firelight-1893
 <img src="https://64.media.tumblr.com/cf71e324773b3b977f49a112b8715f43/b75533fdfe7dd839-1f/s1280x1920/7ec88d41a1fe4f5896f21e1f29bbdf85a31bb9dd.jpg">
 
