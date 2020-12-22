@@ -3,6 +3,9 @@
 ##
 
 ## Artists
+* Roj Friberg (Swedish, 1934-2016)
+<img src="https://64.media.tumblr.com/e64e1fbface8d3b176052e62995c1f46/1c676fb5808bee6e-a4/s2048x3072/f10ea64ba188cf957ec4050111f75a6eafb0302f.jpg">
+
 * Jenny Saville 
   - British, b. 1970, SELF-PORTRAIT, 1991 , Oil on canvas , 53 ½ x 48 in. | 136 x 122 cm.
   - <img src="https://64.media.tumblr.com/d8f924664518e708f6442d7824f5a4b1/64888c5972df1b3f-fd/s2048x3072/ae83754f5de93a1289d9047c744e1be371359730.jpg">
