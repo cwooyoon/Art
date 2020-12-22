@@ -5,6 +5,12 @@
 ## Artists
 * Roj Friberg (Swedish, 1934-2016)
 <img src="https://64.media.tumblr.com/e64e1fbface8d3b176052e62995c1f46/1c676fb5808bee6e-a4/s2048x3072/f10ea64ba188cf957ec4050111f75a6eafb0302f.jpg">
+* Roj Friberg (Swedish, 1934-2016), Slottsinteriör [Castle Interior], 2003. Mixed media on paper, 86 x 104 cm.
+<img src="https://64.media.tumblr.com/410e0026f1d53c35b93a604aa30d795b/cc92313f5ec2c89d-02/s2048x3072/54ca5d14d8ed95a8dc50346e5e7c6e0d3f5179f0.jpg">
+* Out of the Ghost Sonata   -   Roj Friberg,  1993, Swedish, 1934-2016, Colour Lithograph, 73 x 53 cm.
+<img src="https://64.media.tumblr.com/1c404ea47338b14aa6c89db70537c5be/189f49836e47d48b-b9/s2048x3072/7d6eea33696dc550838986909ced3514112223b6.jpg">
+* Roj Friberg (Swedish, 1934-2016), Nocturne, 2014. Mixed media, 57.5 x 79.5 cm.
+<img src="https://64.media.tumblr.com/b1e86c3c37b4519d29bbfbe76bcb8ee7/447668c4eeef2a7f-df/s2048x3072/4894f9ca9bdfbce34dd7e20d19eee1bbaab706ba.jpg">
 
 * Jenny Saville 
   - British, b. 1970, SELF-PORTRAIT, 1991 , Oil on canvas , 53 ½ x 48 in. | 136 x 122 cm.
