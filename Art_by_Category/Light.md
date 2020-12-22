@@ -1,3 +1,7 @@
+*Firelight, 1893, Frank W. Benson
+https://www.wikiart.org/en/frank-w-benson/firelight-1893
+<img src="https://64.media.tumblr.com/cf71e324773b3b977f49a112b8715f43/b75533fdfe7dd839-1f/s1280x1920/7ec88d41a1fe4f5896f21e1f29bbdf85a31bb9dd.jpg">
+
 * Gunnar Hallström (Sweden, 1875-1943), Vinterlandskap med Snödriva i Månsken [Winter Landscape with Snowdrift in Moonlight], c.1902
 <img src="https://64.media.tumblr.com/666b7e57e1a6fb4afd3d317e5441bea3/199b9df090cb7b9e-5a/s1280x1920/83a0b8545ae4a1a6ca1f8a08b0065ae236625568.jpg">
 
