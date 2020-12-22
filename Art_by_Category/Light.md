@@ -1,3 +1,9 @@
+* Gunnar Hallström (Sweden, 1875-1943), Vinterlandskap med Snödriva i Månsken [Winter Landscape with Snowdrift in Moonlight], c.1902
+<img src="https://64.media.tumblr.com/666b7e57e1a6fb4afd3d317e5441bea3/199b9df090cb7b9e-5a/s1280x1920/83a0b8545ae4a1a6ca1f8a08b0065ae236625568.jpg">
+
+* "Portrait of Lindsay", American Painter Linda Lee Nelson b.1963
+<img src="https://64.media.tumblr.com/6ab367fb541f5703fe7d960b749272e6/ae2495ebfd790b95-5a/s540x810/1cf0ce9aeeff1d4c29dc4282cc69ec8fd79f1945.jpg">
+
 * René-Xavier Prinet  -  Les deux amis 
 French, 1861-1946
 <img src="https://64.media.tumblr.com/f909f518e31ffec681a74da4551597ac/tumblr_pwlapoHusH1wb8miao1_540.png">
