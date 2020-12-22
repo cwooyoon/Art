@@ -3,6 +3,9 @@
 ##
 
 ## Artists
+* #SCOPENewYork 2017 | Exhibitor Highlight | Victor Lope Arte Contemporaneo - Booth 029, [Jose Luis Puche, Midsummer, 2016, Drawing, 76 x 57 cm.]
+<img src="https://64.media.tumblr.com/3bc70ae35ed98f652cbe9bc52ac8306a/tumblr_oln07oHtJT1rshz1po1_1280.jpg">
+
 * Roj Friberg (Swedish, 1934-2016)
 <img src="https://64.media.tumblr.com/e64e1fbface8d3b176052e62995c1f46/1c676fb5808bee6e-a4/s2048x3072/f10ea64ba188cf957ec4050111f75a6eafb0302f.jpg">
 * Roj Friberg (Swedish, 1934-2016), Slottsinteriör [Castle Interior], 2003. Mixed media on paper, 86 x 104 cm.
