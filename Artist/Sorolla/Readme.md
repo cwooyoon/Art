@@ -5,6 +5,9 @@
 ## Artworks
 * Afternoon Sun, Playa de Valencia, 1910, Joaquín Sorolla (https://www.wikiart.org/en/joaqu-n-sorolla/afternoon-sun-playa-de-valencia-1910)
   - <img src="https://64.media.tumblr.com/27f5456957794c55f7a2f61b01a02d78/4cf77bea4d83258a-69/s1280x1920/53249c609c0654dac99ab9c9e8d8376653a26d8f.jpg">
+
+* Bathing, Joaquín Sorolla
+  - <img src="https://64.media.tumblr.com/68274da747d98f7b109a2f731d995dd4/11c66d7624c347cc-44/s1280x1920/0b845a90b53848706d141fa67f9ae437afa0a734.jpg">
   
 * The two sisters, 1909, Joaquín Sorolla
   - <img src="https://64.media.tumblr.com/c6a0d25039560ae50dbdcb6357f6677f/9f7421ddae960a84-c9/s1280x1920/8b2624ba83d4dcec8de902cec6c4437ed521a78c.jpg">
