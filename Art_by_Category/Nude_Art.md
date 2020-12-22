@@ -1,3 +1,9 @@
+* Day Dreaming (White Painting), 2016, Aline Alagem
+<img src="https://64.media.tumblr.com/189781063a004593a71f62da0576c099/tumblr_oeg134DPWt1qay2dlo1_640.jpg">
+
+* Mariano Andreu (1888–1976) https://en.wikipedia.org/wiki/Mariano_Andreu
+<img src="https://64.media.tumblr.com/244cf153dd59fac873618213921858a0/2ecfbfc8f345f429-b8/s2048x3072/af67ece67954fbb7882e75943187f808e5787210.jpg">
+
 * Butterflies -  Reinhold Max Eichler
 <img src="https://64.media.tumblr.com/e7baa091f02de4545233ed63232affc8/25880e3cc2ae752f-ea/s2048x3072/5dde77f4862c58699b6d70f8548067d5cbf1b79e.jpg">
 
