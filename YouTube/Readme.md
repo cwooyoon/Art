@@ -3,7 +3,8 @@
 ## Lessions
 * Best Art Advice I've Ever Received
   - https://www.youtube.com/watch?v=9LX_MgezcK8
-
+* Art Fundamentals: Values
+  - https://www.youtube.com/watch?v=ax130yILbw0
 ## 미술이야기
 * Hobit's Art Story
   - https://www.youtube.com/channel/UC3AUGvd5ItCz501Zk8FQRjA/playlists
