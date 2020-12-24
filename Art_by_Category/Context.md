@@ -1,3 +1,32 @@
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### "A Virgin" by Abbott Handerson Thayer
+<img src="https://64.media.tumblr.com/cce22b574155514be9f08f925721dd22/ca7c53e049da2483-fd/s1280x1920/e6d7e2a15fc9531de30f0841feba184cdaa0044f.jpg">
+
+
+
+* Girl in a Room, 1958
+
+Richard Diebenkorn ( 1922 - 1993 )
+
+시선이 향하고 있는 곳의 허공...
+<img src="https://64.media.tumblr.com/4ecdaf36135e3b69f13c0cca9fc00b07/4e436631740e2eaa-86/s1280x1920/1c2896912645b6eb60133419f242daf10d1b1ea0.jpg">
+
+관련 시리즈: https://www.google.com/search?q=Girl+in+a+Room,+1958+Richard+Diebenkorn+(+1922+-+1993+)&sxsrf=ALeKk03gIC9LckxIIYy27OPtFt6Qc7TCiQ:1608847704429&tbm=isch&source=iu&ictx=1&fir=pQWfoS5IVgBD7M%252C5CCN9tu3BnO1EM%252C_&vet=1&usg=AI4_-kStJHlc4l26ltK7C7Lns2Ksp1SxGg&sa=X&ved=2ahUKEwiX5a3f0OftAhWSBIgKHSUfAHwQ9QF6BAgOEAE#imgrc=pQWfoS5IVgBD7M
+
 * Frank Brangwyn
 
 Above the fishing village 1887
