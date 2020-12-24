@@ -1,3 +1,44 @@
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### Pierre Cayol (French, *1939)
+<img src="https://64.media.tumblr.com/dea106c975c4be7ce60be4afe29178fb/f569843f3972b8d5-bb/s500x750/1b036222db7baad34eed3c8bb44c6166e8c3b41b.jpg">
+
+
+* Alexis Mérodack-Jeaneau (French, 1873-1919)
+
+The Yellow Dancer, 1912
+
+황색과 청색의 대비, 얼굴 부위의 명암대비 효과로 FP
+
+<img src="https://64.media.tumblr.com/fb8ffb2d965bfa542a0974f00a4e7369/6103026b588dcc61-b7/s1280x1920/c5e5c3c10b683207253db87fd7cb7370ca3c5268.jpg">
+
+* Nude Study in Blue, Henri Matisse, 1899, Tate
+```
+Bequeathed by C. Frank Stoop 1933
+Size: support: 730 x 543 mm frame: 950 x 760 x 110 mm
+Medium: Oil paint on canvas
+```
+<img src="https://64.media.tumblr.com/f33c880dca848b7a3143e2436fe33fa2/adeae6ab8a8cadd1-df/s1280x1920/728152784e1f50b5970c4140e9808780078d4947.jpg">
+
 * Art by Francine Van Hove
 <img src="https://64.media.tumblr.com/50923e5ec22b641ff1199e447f4343a0/a88ec8f3b90524fb-61/s1280x1920/d33d49d92ae00f9a906df976e5a4c10653f1bec5.jpg">
 
