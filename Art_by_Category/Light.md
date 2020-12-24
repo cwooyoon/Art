@@ -10,12 +10,15 @@
 * © Glenys Cour (Welsh, b. 1924 ) - Floral Metaphor 1
 <img src="https://64.media.tumblr.com/5eed32091c78b8f39e0b906892fae7a4/848c0d2c65e4223a-57/s2048x3072/7855b0d3459e4a8c3e9f4e2658a5272cf08c5c54.jpg>
 
+* Islands at Port-Villez, 1897, Claude Monet
+<img src="https://64.media.tumblr.com/cf0d6737f8090a7480ecbe9e88234408/997dbe4abbb3b00c-71/s1280x1920/a585a6fa30bd50d41a1eabb2a05f04e9b7159e1d.jpg">
 
+* Nguyễn Thanh Bình  -  Untitled
+Vietnamese, b. 1951
+<img src="https://64.media.tumblr.com/f537e3b09dec8f2f7e9e357d47f34d66/d8c0f3551c9b66dd-48/s1280x1920/bb2f9ed3b1235b4ca8c2c07937f11356eb530f19.png">
 
-
-
-
-
+* Viareggio, 1938, Francis Picabia
+<img src="https://64.media.tumblr.com/5e712fcc997b51877b2dbd670c8670da/fb20c586d20a2971-67/s1280x1920/17cade4d85fea450a2be931196ccf4481b333a7d.jpg">
 
 
 
