@@ -1,22 +1,37 @@
+# Nude Arts
+
+### Joseph Michael Todorovitch
+Rapunzel, Oil on Panel 20 x 12
+<img src="https://64.media.tumblr.com/82ec37116c7d4a3477c93b38027e9d59/abff81c5028e3f24-2a/s400x600/0dadfa0b20fe6ff2118c06613c9d3b441f0a9c32.jpg">
+
+### (Attributed to) Elihu Vedder
+
+Psyche and Cupid, late 19th century
+
+<img src="https://64.media.tumblr.com/28b5b8dfd8105aef10edaeb8477a246c/3a79f03a9530e038-9e/s1280x1920/2de713231c8c0286d71133d7a734b17379aa1544.jpg">
+
+### Yvonne on the Beach with the Anthurium
+<img src="https://64.media.tumblr.com/70b9b84b2eb942b263aa4e376a9e7900/tumblr_prwksrJA611rftj5po1_1280.jpg">
 
 
+### Dryads, or dryads, are guardian nymphs of oaks, trees, and gardens. Authentic defenders of green.
+#### Painting: “A dryad”, by William Adolphe Bouguereaou. Oil on canvas.
+<img src="https://64.media.tumblr.com/b50d7904da442853304883570f2ca5bb/d285dd9c0b38b282-2f/s1280x1920/827bbec39a8897d4ccbcee02a25e98aed309e56b.jpg">
 
 
+### ANTOINE MOLINERO ‘Lunaire’
+<img src="https://64.media.tumblr.com/283c42e3d0a5543f871dbfb22f469651/tumblr_ook1sdZ6vh1w4tdtqo1_640.jpg">
+
+### Anna Rose Bain     Unmasked
+<img src="https://64.media.tumblr.com/36fb82fcb668b6bdd55f4a162b81fc90/361c7b1a955af6d1-57/s500x750/f9525190d0c5251e5dec8fba86f7b4ef01c2e14b.jpg">
 
 
+### Josh Summana
+<img src="https://64.media.tumblr.com/6f6c735ec1a872fe9ecd0093008e6d4f/tumblr_paa65kW5GY1u8p1peo1_640.jpg">
 
 
-
-
-
-
-
-
-
-
-
-
-
+### Manuel Ramat (Argentinian, 1977) 
+<img src="https://64.media.tumblr.com/ea3ce41c9cca204e95866f05fc47dd04/ec971052a95dfb3d-57/s1280x1920/0d18257714abaf43618556593fbf8c7e5400df8a.jpg">
 
 
 ### Pierre Cayol (French, *1939)
