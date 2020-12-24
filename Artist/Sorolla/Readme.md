@@ -1,8 +1,24 @@
 # Joaquin Sorolla
 
-##
+
 
 ## Artworks
+
+### Peppers, 1903, Joaquín Sorolla
+
+일부만 자세히 그림: 소녀의 얼굴, 왼손
+
+<img src="https://64.media.tumblr.com/76cffcfbeb690c81002155d429d976e8/437211586b9e97f5-be/s1280x1920/da1092f2a488267bd60a53ba4a8a99f1f9d19746.jpg">
+
+
+
+
+
+
+
+
+
+
 * Afternoon Sun, Playa de Valencia, 1910, Joaquín Sorolla (https://www.wikiart.org/en/joaqu-n-sorolla/afternoon-sun-playa-de-valencia-1910)
   - <img src="https://64.media.tumblr.com/27f5456957794c55f7a2f61b01a02d78/4cf77bea4d83258a-69/s1280x1920/53249c609c0654dac99ab9c9e8d8376653a26d8f.jpg">
 
