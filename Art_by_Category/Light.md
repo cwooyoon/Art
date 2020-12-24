@@ -1,3 +1,17 @@
+
+
+
+
+
+
+
+
+
+
+
+* In the Crimea, 1905, Arkhip Kuindzhi
+<img src="https://64.media.tumblr.com/5644c6be78d83eca7d2dd0c890dae74b/5dd53ffef3080fb8-3c/s1280x1920/caeeb28d8303c4b6a7ee153e8f3c14e701ba2544.jpg">
+
 * Richard Savoie
 <img src="https://64.media.tumblr.com/aedebec13206445193fd27355c9f2e35/e5b6e4936eac9383-38/s1280x1920/ece6e23a2b988c454704c3ec6605d562aee2fb7a.jpg">
 
@@ -19,10 +33,6 @@ Vietnamese, b. 1951
 
 * Viareggio, 1938, Francis Picabia
 <img src="https://64.media.tumblr.com/5e712fcc997b51877b2dbd670c8670da/fb20c586d20a2971-67/s1280x1920/17cade4d85fea450a2be931196ccf4481b333a7d.jpg">
-
-
-
-
 
 * Leo Putz
 <img src="https://64.media.tumblr.com/f52c9986fac1c17e86929e8cc379fa7e/711274ab434c5249-8c/s2048x3072/e0364c714f4ab731494ce01ea9a042941d28a914.jpg">
