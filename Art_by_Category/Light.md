@@ -1,3 +1,21 @@
+* Richard Savoie
+<img src="https://64.media.tumblr.com/aedebec13206445193fd27355c9f2e35/e5b6e4936eac9383-38/s1280x1920/ece6e23a2b988c454704c3ec6605d562aee2fb7a.jpg">
+
+* Akseli Gallen-Kallela, The lovers
+<img src="https://64.media.tumblr.com/3e564e3baa6d3e749d8c70500f738498/305a44d14250c409-e5/s1280x1920/cb1bf2eb9451eb0cf66c3897126131ead3bd62fc.jpg">
+
+
+
+
+
+
+
+
+
+
+
+
+
 * Leo Putz
 <img src="https://64.media.tumblr.com/f52c9986fac1c17e86929e8cc379fa7e/711274ab434c5249-8c/s2048x3072/e0364c714f4ab731494ce01ea9a042941d28a914.jpg">
 
