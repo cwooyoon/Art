@@ -5,7 +5,8 @@ Oil on canvas
 24" H x 30" W
 <img src="https://64.media.tumblr.com/bbb77fc53fd05e494d632e148b817094/1f23f1b414c3a4c0-29/s1280x1920/cef08fc2ded6eeb2e4130c32c448262c9165a99c.png">
 
-
+* Alupka. Resort Park, 1920, Ilya Mashkov
+<img src="https://64.media.tumblr.com/1b841e1dda80f4330249b29d14ad8daa/2dd01db4441bc11b-03/s1280x1920/3a359ed0783818f350be607e29a88dbb21e7b531.jpg">
 
 
 
