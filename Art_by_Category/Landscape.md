@@ -1,3 +1,15 @@
+* HANSON DUVALL PUTHUFF (1875-1972)
+
+"Surging Shallows"
+Oil on canvas   
+24" H x 30" W
+<img src="https://64.media.tumblr.com/bbb77fc53fd05e494d632e148b817094/1f23f1b414c3a4c0-29/s1280x1920/cef08fc2ded6eeb2e4130c32c448262c9165a99c.png">
+
+
+
+
+
+
 * Port-Lligat , Cadaqués   -    Eliseo Meifrén, 
 Catalan 1859-1940, 
 Oil on canvas, 131 x 181 cm.
