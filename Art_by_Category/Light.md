@@ -4,6 +4,11 @@
 * Akseli Gallen-Kallela, The lovers
 <img src="https://64.media.tumblr.com/3e564e3baa6d3e749d8c70500f738498/305a44d14250c409-e5/s1280x1920/cb1bf2eb9451eb0cf66c3897126131ead3bd62fc.jpg">
 
+* Rudolf Nissi
+<img src="https://64.media.tumblr.com/7a28dfa2e23808dcf66be51ff09a00a5/415fc9f7311dc243-29/s640x960/cfeaa5f1b32ea051e4819fdbb8564be62d87d1a1.jpg">
+
+* © Glenys Cour (Welsh, b. 1924 ) - Floral Metaphor 1
+<img src="https://64.media.tumblr.com/5eed32091c78b8f39e0b906892fae7a4/848c0d2c65e4223a-57/s2048x3072/7855b0d3459e4a8c3e9f4e2658a5272cf08c5c54.jpg>
 
 
 
