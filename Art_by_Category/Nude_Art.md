@@ -1,5 +1,19 @@
 # Nude Arts
 
+
+
+
+
+
+
+
+
+
+
+
+### Johannes Grützke (German, 1937-2017), Ohne Titel (Frauenakt) [Untitled (femle nude), 1991. Wax chalk on paper, 101 x 117 cm.
+<img src="https://64.media.tumblr.com/5ef332d4676bf940171d0d4a12ab4518/39ad5aa69a4830d0-db/s2048x3072/f4bc445e60538cb3b82fd47437e9f69452b2b79c.jpg">
+
 ### Joseph Michael Todorovitch
 Rapunzel, Oil on Panel 20 x 12
 <img src="https://64.media.tumblr.com/82ec37116c7d4a3477c93b38027e9d59/abff81c5028e3f24-2a/s400x600/0dadfa0b20fe6ff2118c06613c9d3b441f0a9c32.jpg">
