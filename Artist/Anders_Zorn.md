@@ -1,5 +1,8 @@
 # Anders Zorn
 
+### Against The Current, 1919, Anders Zorn, Medium: etching,paper
+<img src="https://64.media.tumblr.com/9bce5a62aa5ec6f50f84276c56f1bc01/d1389ac741603dcc-04/s640x960/eeb721d53b365d341ecfcc90f33b6e44dbd35392.jpg">
+
 ### Red Stockings, 1887, Anders Zorn
 <img src="https://64.media.tumblr.com/d76ce951dadfdbf6df1c9bcdc1867a33/5c8c9149aca219aa-20/s500x750/d4af763e4c455d53abbeb66467a864b25121c239.jpg">
 
