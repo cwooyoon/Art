@@ -6,6 +6,7 @@
 
 ### Spring Landscape, 1891, John Henry Twachtman, 
 Medium: pastel,paper
+
 <img src="https://64.media.tumblr.com/eaa077559f3347a4abf13db4ad9ea4f8/3250e726168ed455-e7/s1280x1920/aac4a13895a27dfdf7797bcf5c59a4b70a34a575.jpg">
 
 
@@ -14,6 +15,7 @@ Medium: pastel,paper
 "Surging Shallows"
 Oil on canvas   
 24" H x 30" W
+
 <img src="https://64.media.tumblr.com/bbb77fc53fd05e494d632e148b817094/1f23f1b414c3a4c0-29/s1280x1920/cef08fc2ded6eeb2e4130c32c448262c9165a99c.png">
 
 ### Alupka. Resort Park, 1920, Ilya Mashkov
@@ -25,6 +27,7 @@ Oil on canvas
 ### Port-Lligat , Cadaqués   -    Eliseo Meifrén, 
 Catalan 1859-1940, 
 Oil on canvas, 131 x 181 cm.
+
 <img src="https://64.media.tumblr.com/031911ece890cc1016586091cb33299e/97efbc59b69a3395-9f/s2048x3072/3adb17bc949142552d77522f3ecf19e0f406c812.jpg">
 
 ### Landscape with Irises, 1914, Henry Ossawa Tanner
