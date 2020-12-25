@@ -7,8 +7,11 @@
 
 
 
+### The Loving Cup ~ Janet Agnes Cumbrae Stewart (1883-1960)
+<img src="https://64.media.tumblr.com/474f110c56232447ec8a2ff4a00931fc/5f9b19f4bcb8192d-9f/s500x750/fec73b8fc21fcee91dd997a215d58aee2ee0ff50.jpg">
 
-
+### Bernard Charoy
+<img src="https://64.media.tumblr.com/3f57d67e96d722f83d6a6365ab2544d5/4e5af442b618c940-d5/s1280x1920/a6940da49332b9dc1969d0f12a834872f8f53789.jpg">
 
 
 ### Johannes Grützke (German, 1937-2017), Ohne Titel (Frauenakt) [Untitled (femle nude), 1991. Wax chalk on paper, 101 x 117 cm.
