@@ -3,6 +3,11 @@
 ##
 
 ## Artists
+
+### Julia Soboleva (Latvian, b. Latvia, based Manchester, England) - Dreamtigers, 2020, Paintings, Mixed Media
+<img src="https://64.media.tumblr.com/1492acc0453f3e95633ad7239b17797e/46072e4a2a60f9a2-57/s1280x1920/f6222449d5e5fbb16bf2fccc127dc1a0afb1180c.jpg">
+
+
 * #SCOPENewYork 2017 | Exhibitor Highlight | Victor Lope Arte Contemporaneo - Booth 029, [Jose Luis Puche, Midsummer, 2016, Drawing, 76 x 57 cm.]
 <img src="https://64.media.tumblr.com/3bc70ae35ed98f652cbe9bc52ac8306a/tumblr_oln07oHtJT1rshz1po1_1280.jpg">
 
