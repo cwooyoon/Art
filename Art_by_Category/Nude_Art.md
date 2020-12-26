@@ -4,7 +4,16 @@
 
 
 
+###Alexandre Jacques Chantron  (1842–1918) - Danae.  1891. Óleo sobre lienzo.
+Expuesta en el Salón de 1891. 
 
+Museo de Bellas Artes de Rennes 
+
+<img src="https://64.media.tumblr.com/0a00bd2c36160fb9dabebbc39b0e0d9f/0f6fc93200ea3cc8-3c/s540x810/68eaa1d0fad5af4eb98b64e648352fc4e52feac4.jpg">
+
+<img src="https://64.media.tumblr.com/7dad926af5bba1094a18ebb21c806d35/0f6fc93200ea3cc8-7a/s1280x1920/0ef30c26757829111f7284f7b88944376e04228b.jpg">
+
+<img src="https://64.media.tumblr.com/162b0f0fbafa1fe0962d2a6c9b1aa29f/0f6fc93200ea3cc8-49/s2048x3072/8439de5bb9b243f34661a9b75b80bd74413d9134.jpg">
 
 
 ### The Loving Cup ~ Janet Agnes Cumbrae Stewart (1883-1960)
