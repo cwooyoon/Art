@@ -2,6 +2,8 @@
 
 
 
+### Fernand Lantoine (French, 1878-1955) 
+<img src="https://64.media.tumblr.com/8ebecb5ecd01d64426afce8595c3bc2f/573c46e5f8e4fd5c-80/s1280x1920/ba34b2c2c360cb384b08cf85648a125259c34adb.jpg">
 
 
 ### Alexandre Jacques Chantron  (1842–1918) - Danae.  1891. Óleo sobre lienzo.
