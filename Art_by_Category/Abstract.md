@@ -2,6 +2,13 @@
 
 #
 
+### Günter Fruhtrunk [Germany] (1923-1982) ~, ‘Rhythm’, 1961.
+
+Acrylic on two pressed wood panels, 
+mounted on top of each other (25 x 23,4 cm).
+
+<img src="https://64.media.tumblr.com/30183b40da31d52edd9dc3de67b13f68/64cc65b3087c17c4-8a/s2048x3072/81fb46571252a14930316c4e431142e557301578.jpg">
+
 ### Hermann Nitsch , Austrian, b. 1938, Untitled, 2009, Acrylic on burlap, 160 x 100 cm.
 <img src="https://64.media.tumblr.com/b36d070bd534fa4a47d5ec98acc3fbc9/e9e8f0a2ee6a2592-e8/s2048x3072/bba21e30e101fa346ac81510de775e420a8afbaa.jpg">
 
