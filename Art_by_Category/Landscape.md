@@ -1,6 +1,11 @@
 
 
+### “Winter Landscape”
+by Henryk Szczygliński (Polish;1881 - 1944)
 
+oil on canvas, private collection
+
+<img src="https://64.media.tumblr.com/921e4ccf9908ebe3e04c773d95385678/4d982dda17034981-82/s2048x3072/ba5aa8bc75bf8cedc0ca2f6c966f592ff848b600.jpg">
 
 ### Trial Islands McNeill Bay, by Desiree Bond
 <img src="https://64.media.tumblr.com/cd4a3d1e803d7baecf9dd984f56ccb2c/82a45a830ae62d2b-f0/s1280x1920/950dabd87d6f51433b6027286cd53004497188f5.jpg">
