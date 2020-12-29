@@ -1,3 +1,6 @@
+## Ernest Hemingway
+<img src="https://64.media.tumblr.com/3665b10c47ae37fe53ffab5a8b9852d6/cbc0803427754166-81/s1280x1920/a30a2f0235ea04a0e5d247245abd59a687c46d8b.jpg">
+
 ## The Key
 <img src="https://64.media.tumblr.com/7efa108490f6852d2cf6044124ecc034/48b18ee530790d81-6f/s640x960/9ac777067dd8264f162d282fb4559f758d5f9c9e.jpg">
 
