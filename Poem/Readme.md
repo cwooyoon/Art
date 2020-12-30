@@ -1,3 +1,7 @@
+## ...passion & poetry it is ❤
+<img src="https://64.media.tumblr.com/0a1158e8c4e9c18e3c253c582c96550d/204f2502cc8dc309-b0/s1280x1920/39a020632db3c525bffb0555c72113dedab59e67.jpg">
+
+
 ## Ernest Hemingway
 <img src="https://64.media.tumblr.com/3665b10c47ae37fe53ffab5a8b9852d6/cbc0803427754166-81/s1280x1920/a30a2f0235ea04a0e5d247245abd59a687c46d8b.jpg">
 
