@@ -1,6 +1,8 @@
 # Contemporary Art
 
-##
+## from The Pyjama Girl Case (1977) by Flavio Mogherini
+<img src="https://64.media.tumblr.com/7429f3e3c05f3c84cb5b623fea1c2d3c/34a6e6f057d0df10-a4/s2048x3072/db1332581515008c94473796d3d3929bd1fb2670.jpg">
+<img src="https://64.media.tumblr.com/115cfe626bffb65860b473514b99aa62/34a6e6f057d0df10-47/s2048x3072/10f5611461c9672d5b730c0efc21dcc9a3cd01c0.jpg">
 
 ## Artists
 
