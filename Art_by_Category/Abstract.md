@@ -2,6 +2,9 @@
 
 #
 
+### Léon Wuidar [Belgium] (b 1938) ~, ‘21 sept. 1985’, 1985. Oil on canvas (60 x 60 cm).
+<img src="https://64.media.tumblr.com/6b8e282dbbb31f18eee5481868137bc1/tumblr_pq4b88GsWH1uhkf79o1_1280.jpg">
+
 ### Günter Fruhtrunk [Germany] (1923-1982) ~, ‘Rhythm’, 1961.
 
 Acrylic on two pressed wood panels, 
