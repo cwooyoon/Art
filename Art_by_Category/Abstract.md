@@ -2,6 +2,9 @@
 
 #
 
+### Jeanne Opgenhaffen 
+<img src="https://64.media.tumblr.com/279af8add2b6117a3a59f23054cfd0f8/98950fb1f0a61a4a-fa/s640x960/fc3e5896d216f790288c345450825c75543795eb.jpg">
+
 ### Léon Wuidar [Belgium] (b 1938) ~, ‘21 sept. 1985’, 1985. Oil on canvas (60 x 60 cm).
 <img src="https://64.media.tumblr.com/6b8e282dbbb31f18eee5481868137bc1/tumblr_pq4b88GsWH1uhkf79o1_1280.jpg">
 
