@@ -1,5 +1,20 @@
 # Nude Arts
 
+
+### Nude at the Mirror, 1909, Suzanne Valadon
+<img src="https://64.media.tumblr.com/91160992bfadbe92d7a281efeac295d8/3678585398a1df19-b8/s500x750/c2f8ef5c2b189aedf1878e2b1171177b53cd1bb2.jpg">
+
+### Signed J. Brož (?). Josef Brož (Czech, 1904-1980)?
+<img src="https://64.media.tumblr.com/2e36b4ff02e31143a71866a2df12ebe9/e4df7023534f3390-62/s1280x1920/5aeb2cd26d7cbdcb133080cb4db3ccbc059c6196.jpg">
+
+### Harald Kolderup 
+<img src="https://64.media.tumblr.com/2aeb834b88956713ee4517c273d2b1f9/f811e9fc06b413c4-12/s640x960/7064ebc92078ee9815f6605c460b9618e3b9563c.jpg">
+
+### Egon Schiele     Trois Femmes debout      1918
+<img src="https://64.media.tumblr.com/f02320633b4965a97bc4fe1e5dcaf270/0d8367b1e4c852f7-fe/s2048x3072/187999583c38469658ff1095a9bb198b08389a9a.jpg">
+
+
+
 ### Zagi, Euan Uglow
  
 Date painted: 1981-2, 
