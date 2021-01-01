@@ -6,7 +6,9 @@
 
 
 
-
+### Antaeus setting down Dante and Virgil in the last circle of hell, 1827, William Blake
+Medium: pen,watercolor,paper
+<img src="https://64.media.tumblr.com/38838e5629156e9c15009a71d8358cf7/93026a0d2c82f3cc-62/s640x960/6e28709031f84d160c4ce31a05f39dd7ace801be.jpg">
 
 ### University of Vienna Ceiling Paintings (Medicine), detail showing Hygieia, 1907, Gustav Klimt
 <img src="https://64.media.tumblr.com/9172aac54fe1a20f18a5e9d500e3ef47/9c179997fa1a924c-0a/s1280x1920/e3b1fa1efa6acc995dc74d019b7066428b1da955.jpg">
