@@ -1,5 +1,8 @@
 # Egon Schiele , 1890 - 1918 
 
+### Trieste Fishing Boat, 1912, Egon Schiele
+<img src="https://64.media.tumblr.com/fdfc4d5426d4c9b2f61f7e482ce4684f/b60544f2837e10f7-28/s1280x1920/c95bcc8c8b6a86b19914bdfb7df1973c93732aee.jpg">
+
 ### Male Nude, 1910, Egon Schiele
 <img src="https://64.media.tumblr.com/a81319c5bc0df1494aebebd9bf5c678f/739fe31c88900f7c-c3/s1280x1920/f3a37def35b5ef694fedaf05f841be096b8018d0.jpg">
 
