@@ -1,6 +1,10 @@
 # Portraits
 
 
+### Amedeo Modigliani.
+<img src="https://64.media.tumblr.com/d48d456d870a11c3368b2008d40a4c67/758687e97aafda47-81/s1280x1920/7be714961117564aeaff385a9467221a672e5d1a.jpg">
+
+
 ### Isabel Bishop  -  Untitled  (Two Young Women on the Bus)
 
 American, 1902-1988 
