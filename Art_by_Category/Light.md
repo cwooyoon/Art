@@ -4,7 +4,8 @@
 
 
 
-
+### Woman in Kimono Holding a Japanese Fan, William Merritt Chase
+<img src="https://64.media.tumblr.com/fbf15510b953a9ad26f322e15d738d6b/fe9196ab720ba2ed-ad/s1280x1920/43d90b93ff9e3ec8d294224a202b4ba80e1e58c6.jpg">
 
 ### Eugene Fog
 "Trees at edge of a path"1870 - 1950
