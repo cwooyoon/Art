@@ -1,7 +1,13 @@
 # Portraits
 
 
+### Isabel Bishop  -  Untitled  (Two Young Women on the Bus)
 
+American, 1902-1988 
+
+Tempera and graphite on board
+
+<img src="https://64.media.tumblr.com/913d9c3c390e5c9cd9378b30f46acd0e/b3450097ca479838-4d/s1280x1920/f21563dcfd201afaaca81449cb411f892abef7fb.png">
 
 ### The Jewish Woman, 1908, Amedeo Modigliani
 <img src="https://64.media.tumblr.com/f0c9b9b078e85ef618cd79cf4640494c/8adf47db818328f1-c8/s1280x1920/49687999e861df1a7ed70973eb032f20b22bd6e1.jpg">
