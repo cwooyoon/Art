@@ -1,5 +1,8 @@
 # Oriental Painting
 
+### Zhu Daoping（朱 道平 Chinese, b.1949）
+<img src="https://64.media.tumblr.com/b73dade520aeb86ad5fe82cbe2b545a3/tumblr_pmd85p9MS01u6xy88o1_1280.jpg">
+
 ### Liu Kuo-Sung 
 B. 1932, China.
 
