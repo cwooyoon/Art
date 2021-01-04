@@ -1,5 +1,8 @@
 # Nude Arts
 
+### Brett Whiteley (b.1939, Australian artist). Lipstick. 1981. Lithograph, collage and handcoloring. 107 x 75.5 cm. (42.1 x 29.7 in.).
+<img src="https://64.media.tumblr.com/95dcd473a96a0f70a05aa0fd03309bea/80ce34bf0f10f8ed-1d/s400x600/1184169182510cb56919f18d09ecd60df0ff8672.jpg">
+
 ### Pablo Larsen    Trilogy
 <img src="https://64.media.tumblr.com/febd32a165dd6b35c619e657f7e95663/dd2b919eb4e6666c-31/s1280x1920/9bfc147046b0b8f3b1dab2c9222cfa91235ec63e.jpg">
 
