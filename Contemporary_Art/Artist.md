@@ -1,6 +1,7 @@
 # Contemportary Artist
 
-
+### Min Jung-Yeon — 4 Minutes   (acrylic on canvas, 2009), In your orbit
+<img src="https://64.media.tumblr.com/e1f36ae52622492235dd3b3a4977fbb0/338b414c69644d9a-df/s1280x1920/a4d1eddce2190f0f1037ba3b680277b4427672b5.jpg">
 
 ## julia fullerton-batten
 <img src="https://www.researchgate.net/publication/314027727/figure/fig3/AS:465665791401986@1488034784360/Figura-4-Julia-Fullerton-Batten-In-Between-2008-C-Print-102-x-137-cm.png">
