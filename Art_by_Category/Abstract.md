@@ -1,6 +1,7 @@
 # Abstract Art
 
-#
+### Untitled, 1957, Ellsworth Kelly
+<img src="https://64.media.tumblr.com/73fc2083d1fc5dbbb867426e10608f10/c35cfc9be83390c7-aa/s400x600/0fc40aa527e9958a38ded01be8c7b54a54cfe19e.jpg">
 
 ### Jeanne Opgenhaffen 
 <img src="https://64.media.tumblr.com/279af8add2b6117a3a59f23054cfd0f8/98950fb1f0a61a4a-fa/s640x960/fc3e5896d216f790288c345450825c75543795eb.jpg">
