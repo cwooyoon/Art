@@ -1,5 +1,9 @@
 # Nude Arts
 
+
+### Bath, 1913, Zinaida Serebriakova
+<img src="https://64.media.tumblr.com/6b5a79844ed8f2ec432a898ca5425e03/0f765d8ee2184c06-e7/s1280x1920/a261e61b62e7070cd87ec795eee87612f88e7d2a.jpg">
+
 ### Robert Loftin Newman
 <img src="https://64.media.tumblr.com/93ad0788b1f4aba5b4c91946f25b1c16/afcef36b3319b739-96/s540x810/114aa613abdff0d15dfcdc87df205a358da227e3.jpg">
 
