@@ -1,5 +1,7 @@
 # Abstract Art
 
+### Soly Cissé (Senegalese, b. 1969), Homme des champs, 2019. Oil on canvas, 355.6 × 355.6 cm
+<img src="https://64.media.tumblr.com/106ac9e7eb65fe08ea87153a16125542/776aa6870bc421a6-68/s2048x3072/7b25a8107f2b52e71605fbaa580b960e8af00eeb.jpg">
 
 ### Genius Logic, 1963, Hans Hofmann
 <img src="https://64.media.tumblr.com/c7784a4376d14c82bbfaae107dd3f683/1d2101835454fe90-b3/s400x600/4b7489399add4dfad1a98cce3e3eb0458d542c0d.jpg">
