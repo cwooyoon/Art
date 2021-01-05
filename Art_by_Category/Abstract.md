@@ -1,5 +1,9 @@
 # Abstract Art
 
+
+### Genius Logic, 1963, Hans Hofmann
+<img src="https://64.media.tumblr.com/c7784a4376d14c82bbfaae107dd3f683/1d2101835454fe90-b3/s400x600/4b7489399add4dfad1a98cce3e3eb0458d542c0d.jpg">
+
 ### Untitled, 1957, Ellsworth Kelly
 <img src="https://64.media.tumblr.com/73fc2083d1fc5dbbb867426e10608f10/c35cfc9be83390c7-aa/s400x600/0fc40aa527e9958a38ded01be8c7b54a54cfe19e.jpg">
 
