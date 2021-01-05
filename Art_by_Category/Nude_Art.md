@@ -1,5 +1,7 @@
 # Nude Arts
 
+### Robert Loftin Newman
+<img src="https://64.media.tumblr.com/93ad0788b1f4aba5b4c91946f25b1c16/afcef36b3319b739-96/s540x810/114aa613abdff0d15dfcdc87df205a358da227e3.jpg">
 
 ### Ilya Haharev
 <img src="https://64.media.tumblr.com/0c607d47eae6aaea9c81faca9afc57ee/51ef4b2a71ad596f-94/s1280x1920/d1c703bf8fb842abf8d2b8834dd9fd1ccda9ff28.jpg">
