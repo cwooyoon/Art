@@ -1,6 +1,12 @@
 # Nude Arts
 
 
+### Death of Abel (1875), Camille Felix Bellanger
+<img src="https://64.media.tumblr.com/51912cd416c3c66a045fac5b43e8f230/34e4241238ee1ba3-71/s2048x3072/edbcad38bf66aa6df74d208249ae716aa0c2f7ae.jpg">
+
+### A Portrait of a Lady On Fire
+<img src="https://64.media.tumblr.com/b180d817b258d26fd825a38a92d617c2/0e7971c88ff22b12-32/s500x750/8a77717c0b8031f4230f30745185efbfde6a7453.jpg">
+
 ### Georges d'ESPAGNAT, Nu à la commode, 1925
 <img src="https://64.media.tumblr.com/41d34b9b79a276289c726f43ac4314a6/d8eba66787d4c51b-00/s1280x1920/8c3cbf3602d9eaf8558363ccf1f978e21b4fc4a8.jpg">
 
