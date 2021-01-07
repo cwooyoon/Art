@@ -105,6 +105,77 @@ https://64.media.tumblr.com/5ef332d4676bf940171d0d4a12ab4518/39ad5aa69a4830d0-db
 ### Eric White (American, 1968) - Transmissions (2019)
 <img src="https://64.media.tumblr.com/69a0421e4af8fd1bfd3e514fbe1b1189/eaa8f9a246a40572-f1/s1280x1920/079fc348431c004935a4cf9816ee54b6a19c193a.jpg">
 
+
+
+## Mayo
+### Mayo (Greek/French, born Egypt, 1905-1990) - Femme et Masque (Woman and Mask, ca. 1960)
+<img src="https://64.media.tumblr.com/0187255fd349a4c8a5fdaab95c845d6c/24e865c9c4975cf8-ec/s2048x3072/5ceed300639c91d9fe8395f9a3320811710587eb.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - Les Joies du Jeudi (The Joys of Thursday, 1970)
+<img src="https://64.media.tumblr.com/297c7702c7c42434da662558d4227094/d7b19bfdfb734777-da/s1280x1920/37842d3da216a345c5756fd5b582c84cb0443122.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - La Vie Augmente Toujours (Life Always Evolves, 1970)
+<img src="https://64.media.tumblr.com/bf31922a587da0764821156af31c7bf2/34fb7d9e85b368b5-44/s2048x3072/ee54046ab86d2b532b7cf3ba6da11a3745637ba5.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - Port D'Espagne (1964)
+<img src="https://64.media.tumblr.com/417329a5b0b9c421682fd8f8755b8dbf/a45d26c0464b3197-4e/s540x810/61eeeab6a4d83a9409fc61ee2847184a8b26620d.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - Toujours L'Espoire (Always Hope, 1975)
+<img src="https://64.media.tumblr.com/821adc2549853ff44ae4b8d00076830e/e7cd044003149a23-03/s2048x3072/ec23f3e772e15f18abc17a6b89a1ce1d4bc9e05b.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - The Player (1980)
+<img src="https://64.media.tumblr.com/87c796985c75fb3d2aa959f436de4f3d/682fda10778e1f6b-39/s2048x3072/469f60d075254067a1afcc4221dca480a5ee685a.jpg">
+
+### Mayo (Greek/French, born Egypt, 1905-1990) - Egg and Stones (n.d.)
+<img src="https://64.media.tumblr.com/b4159aa517eb6a6480d4f5481a627f99/d4730aa5460ded9c-4e/s2048x3072/808cbd0838ac651230a5158d7131f377360ca9b7.jpg">
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Lydia Okumura, from Land of Lads, Land of Lashes: Rosemarie Castoro, Wanda Czelkowska, Lydia Okumura, Curated by Anke Kempkes, Galerie Thaddaeus Ropac, London, June 25, – August 11, 2018
 <img src="https://64.media.tumblr.com/200015f294fd55710102bced8cbc6627/tumblr_pd8wblQKwo1sizr65o1_1280.jpg">
 
