@@ -1,5 +1,96 @@
 # Contemporary Art
 
+
+## Johannes Grützke (German, 1937-2017)
+### Das Lied auf dem Lande [The Song of the Country], 1983-84. Oil on canvas, 206 × 180 cm.
+<img src="https://64.media.tumblr.com/33e73d53ab09aa5044f7e279c4c8f547/tumblr_nxoet5eDm71u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Die Freiheit bricht durch das Brandenburger Tor [Freedom breaks through the Brandenburg Gate], 2014. Pastel on paper, 114 x 100 cm.
+<img src="https://64.media.tumblr.com/b65582b87741c8b3664fd684e2147f8a/tumblr_nyi7prWxZh1u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Im Rollstuhl [In the wheelchair], 2001. Oil on canvas, 180 x 205 cm.
+<img src="https://64.media.tumblr.com/d44c823c5e3c942f005c0b30f6e01fde/tumblr_nzpivzgYYu1u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Laokoon, 1992. Coloured chalk on two butted sheets of brownish paper, 182 x 187 cm.
+<img src="https://64.media.tumblr.com/b265b8c6b8b61f369198a881750bfeaf/tumblr_o6pn40BmSe1u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Absprung verhindern [Stop jumping], 2000. Oil on canvas, 120 x 80 cm.
+<img src="https://64.media.tumblr.com/87536120ce889b1f353e55f815e78aea/tumblr_o7k28uyGy31u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Der schulhof [The Schoolyard], 1980. Oil on canvas, 181.61 x 183.52 cm.
+<img src="https://64.media.tumblr.com/7a8acbfa88ff7c7168c01a8e6493400d/tumblr_o6p8cv1CHc1u6x3h6o2_r1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Die Apotheose des Herakles [The Apotheosis of Hercules], 1975. Pastel on paper, 195 x 234 cm. source
+<img src="https://64.media.tumblr.com/1d3e82a0f34957a965f43bafa2e8b08e/tumblr_oq3zyfYj6O1s1mljio1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Vier alte Männer von einer Frau durchwoben [Four Old Men Interwoven with a Woman], 1989. Oil on canvas, 155 x 205 cm.
+<img src="https://64.media.tumblr.com/28e13c64fef7a695a9fedea83601e088/tumblr_p8qan3Lxe61u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Schnur straff halten [Keep the string taut], 1974. Pastel crayon on handmade paper, 47.7 x 40.2 cm.
+<img src="https://64.media.tumblr.com/714000f28dadeb2986d0ed0feca9dabc/tumblr_p8qb49zaGl1u6x3h6o1_1280.jpg">
+
+### Johannes Grützke (German, 1937-2017), Ohne Titel, 1989. Pastel on brown paper, 120 x 99.5 cm.
+<img src="https://64.media.tumblr.com/e01bd52647de939cdbd0fa509d482630/tumblr_p9kk211hnJ1u6x3h6o1_1280.jpg">
+
+Johannes Grützke (German, 1937-2017), Die Geisel des Gefangenen [The Prisoner’s Hostage], 1983. Oil on canvas, 150 x 135 cm.
+https://64.media.tumblr.com/7fa5c04eec5c6428e93095fc8990db47/tumblr_p9kk85FvGR1u6x3h6o2_1280.jpg
+
+Johannes Grützke (German, 1937-2017), Heimkehr von der Jagd [Return home from the hunt], 1984. Pastel on grey brown paper, 100 x 124 cm.
+https://64.media.tumblr.com/238dbc850dc88da8dbabda8cc7b0bb2f/tumblr_pgtndvyBSs1u6x3h6o1_1280.jpg
+
+Johannes Grützke (German, 1937–2017), Kriegsknecht und Auferstehender, 1986. Pastel and gouache on paper, 163.5 x 173.5 cm.
+https://64.media.tumblr.com/74055d0c04bb1c80effa4cdaaaa8a5bb/tumblr_pc4qm2K8yt1s1mljio1_1280.jpg
+
+Johannes Grützke (German, 1937-2017), Gebeugt mit Weinglas II [Bending with wine glass II], 1992. Pastel on brownish packing paper, 155 x 100 cm.
+https://64.media.tumblr.com/db1d1eb1882b2e868fe8b6ed923cc332/tumblr_ppiggrpbUo1u6x3h6o1_1280.jpg
+
+Johannes Grützke (German, 1937-2017), Im Mist (Eva und Maria), 1982. Oil on canvas, 225 x 200 cm. source
+https://64.media.tumblr.com/6bda95903e89edc4a113b4b448572d2f/tumblr_pqw4ihlQHz1s1mljio1_1280.jpg
+
+Johannes Grützke (German, 1937-2017), Das Gebäude des deutschen Geistes [The Building of the German Spirit], 1975. Oil on canvas, 230  x  205 cm.
+https://64.media.tumblr.com/6bb9265d5e3c9c5295b3e7cab174a5a8/e07a41b5747af443-99/s2048x3072/25d71d768ca933fd6b02b37cb4ed2689c1d01bf4.jpg
+
+Johannes Grützke (German, 1937-2017), Männergesellschaft [Men’s society], 1975. Pastel on blue laid paper, 61.7 × 48.4 cm.
+https://64.media.tumblr.com/d9f8bd21f2e543be7e7965910a6b0f16/fa405f0b8373367d-66/s2048x3072/8cf067ab9e932375f0a5ca1d0c1cc0c77ea4ccd9.jpg
+
+Johannes Grützke (German, 1937– 2017)
+
+Male nude (Männlicher Akt), 1994
+
+Pastel on brown paper, 164 × 50 cm.
+https://64.media.tumblr.com/e21a5a05a3de01b194c1771da70b237c/tumblr_ps6r68OOeP1qa1j80o1_1280.jpg
+
+Johannes Grützke (German, 1937-2017), Ohne Titel (Frauenakt) [Untitled (femle nude), 1991. Wax chalk on paper, 101 x 117 cm.
+https://64.media.tumblr.com/5ef332d4676bf940171d0d4a12ab4518/39ad5aa69a4830d0-db/s2048x3072/f4bc445e60538cb3b82fd47437e9f69452b2b79c.jpg
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Eric White (American, 1968) 
 
 ### Eric White (American, b. 1968), No Neutral Thoughts, 2008. Oil on canvas, 61 × 61 cm
