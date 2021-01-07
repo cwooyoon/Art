@@ -1,5 +1,10 @@
 # Contemporary Art
 
+
+## Lydia Okumura, from Land of Lads, Land of Lashes: Rosemarie Castoro, Wanda Czelkowska, Lydia Okumura, Curated by Anke Kempkes, Galerie Thaddaeus Ropac, London, June 25, – August 11, 2018
+<img src="https://64.media.tumblr.com/200015f294fd55710102bced8cbc6627/tumblr_pd8wblQKwo1sizr65o1_1280.jpg">
+
+
 ## Raffaele Minotto
 <img src="https://64.media.tumblr.com/7ae387e68f9b5abb130093698e84ab18/af7a662757d7744f-63/s1280x1920/fe01e979bb6616e396c27ed12121c9a4dc172fd0.jpg">
 <img src="https://64.media.tumblr.com/2917c170b9033209935e398b81394359/af7a662757d7744f-59/s1280x1920/9092db4503b509022b860725e6187bcb38aa1a90.jpg">
