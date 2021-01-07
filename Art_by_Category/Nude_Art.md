@@ -1,6 +1,16 @@
 # Nude Arts
 
 
+### Leo Putz, Vanitas, particolare
+<img src="https://64.media.tumblr.com/f3e76c91b92e68c3a30b506479620a0b/tumblr_oswduhKhQo1ubhm7mo1_500.png">
+
+
+### Henning Von Gierke
+<img src="https://64.media.tumblr.com/b8b18e727558bfa0f067e13327ddadd2/8f7a43e01eea2e3e-fb/s500x750/09f3966601f4cd12e4bbe675cf2ab6fc34c60734.jpg">
+
+### Standing female nude, against a dark wall, 1900, Paula Modersohn-Becker
+<img src="https://64.media.tumblr.com/d8b0b3ccbdc3ecd1eab999cccb090678/2d699b142b84a1f4-f4/s400x600/f44d3735e2fb2dfd1c312165cada527c036c2d5e.jpg">
+
 ### Death of Abel (1875), Camille Felix Bellanger
 <img src="https://64.media.tumblr.com/51912cd416c3c66a045fac5b43e8f230/34e4241238ee1ba3-71/s2048x3072/edbcad38bf66aa6df74d208249ae716aa0c2f7ae.jpg">
 
