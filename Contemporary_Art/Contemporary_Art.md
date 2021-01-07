@@ -1,6 +1,10 @@
 # Contemporary Art
 
 ## Eric White (American, 1968) 
+
+### Eric White (American, b. 1968), No Neutral Thoughts, 2008. Oil on canvas, 61 × 61 cm
+<img src="https://64.media.tumblr.com/c00a83fc1d77a280538d4e11cdb6f491/tumblr_pilezsNKgP1v1k5edo1_1280.jpg">
+
 ### On the Air (3D Print) (2008)
 <img src="https://64.media.tumblr.com/273af5faffe5e5fdb3ae74333d0bfb6c/6ac45a757cd22446-2f/s1280x1920/31577f14f55241e3c075f0ec6fa7f8068fe019fa.jpg">
 
