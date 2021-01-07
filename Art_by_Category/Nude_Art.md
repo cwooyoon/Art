@@ -1,5 +1,9 @@
 # Nude Arts
 
+
+### Georges d'ESPAGNAT, Nu à la commode, 1925
+<img src="https://64.media.tumblr.com/41d34b9b79a276289c726f43ac4314a6/d8eba66787d4c51b-00/s1280x1920/8c3cbf3602d9eaf8558363ccf1f978e21b4fc4a8.jpg">
+
 ### Tito Merello
 <img src="https://64.media.tumblr.com/b3229ef729365e3fa2511c5688306b90/tumblr_pp7revcpay1ve0199o1_1280.jpg">
 
