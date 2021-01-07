@@ -1,5 +1,7 @@
 # Nude Arts
 
+### Tito Merello
+<img src="https://64.media.tumblr.com/b3229ef729365e3fa2511c5688306b90/tumblr_pp7revcpay1ve0199o1_1280.jpg">
 
 ### Gustave Doré
 <img src="https://64.media.tumblr.com/0af487f2a3755dd4de9620dac01a6a62/3435c2bb848282e3-de/s1280x1920/0bbb30b0d71a9874747c2f86a37143631ea21f50.jpg">
