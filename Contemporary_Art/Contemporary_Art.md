@@ -11,6 +11,9 @@
 
 ## Anne Hoenig (American, 1976)
 
+### Anne Hoenig (American, 1976) - The Triumph of Truth (2008)
+<img src="https://64.media.tumblr.com/cdf32a763d62e0e4b04fccc32fd56959/debbb8f991b78f92-ea/s1280x1920/f0b3ba146fd8f07482ee2f9ec224e565858ce8b3.jpg">
+
 ### Anne Hoenig (American, 1976) - View (2003)
 <img src="https://64.media.tumblr.com/abed7d88ae200dd071ab11e81cc127c0/e218c85258f472c4-d1/s1280x1920/4c2de3bf1201380453f31e5fff5fac2a8005bebd.jpg">
 
