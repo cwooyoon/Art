@@ -9,6 +9,11 @@
 ### Benjamin Prins (Dutch, 1860-1934) 
 <img src="https://64.media.tumblr.com/ac6e1383c5149469b4325c5add3def11/4e317657f63e3bf1-de/s2048x3072/d928ccf3b750ca58bc0067b5a3def052c06625c2.jpg">
 
+### Painting (1996) by American artist Mary Beth McKenzie (*1946).
+<img src="https://64.media.tumblr.com/5e9c0d5e949f23146f74ac11c5bf983b/tumblr_pangmv8Mgy1w7m7ioo1_640.jpg">
+
+### “Hybris” (2018) by Italian artist Andrea Mauti.
+<img src="https://64.media.tumblr.com/a0b2c3a49c42dbb8d0df3714137c4ae1/tumblr_p9hj6cHgvB1w7m7ioo1_1280.jpg">
 
 ### Antony Troncet (1879-1939) - Au bord du lac
 Crayon on paper. 33.5 x 47.25 inches, 85 x 120 cm.
