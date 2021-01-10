@@ -1,5 +1,18 @@
 # Nude Arts
 
+### Pablo Picasso, 'Le Sommeil' (Sleep), [1932 ]
+<img src="https://64.media.tumblr.com/9247f5a67667ce8f7d1645d1625d41fe/dc88e46a5d0f8979-32/s400x600/beb2c8860501c9c0c1621abde5fb28d884b2addf.jpg">
+
+### JOE BOWLER
+<img src="https://64.media.tumblr.com/26fce4c329b086ea96c18e5bd66aa759/84eb311daebb3eab-1a/s1280x1920/6d887c13fcd64e2062dc466488d187a555f47835.jpg">
+
+### Benjamin Prins (Dutch, 1860-1934) 
+<img src="https://64.media.tumblr.com/ac6e1383c5149469b4325c5add3def11/4e317657f63e3bf1-de/s2048x3072/d928ccf3b750ca58bc0067b5a3def052c06625c2.jpg">
+
+
+### Antony Troncet (1879-1939) - Au bord du lac
+Crayon on paper. 33.5 x 47.25 inches, 85 x 120 cm.
+<img src="https://64.media.tumblr.com/17e37bb5f85d9ef936dbef440aa795f0/10ac1497d2cc3895-f4/s2048x3072/0e9a880b965c5d06f641551485328b68d842bb0c.jpg">
 
 ### Leo Putz, Vanitas, particolare
 <img src="https://64.media.tumblr.com/f3e76c91b92e68c3a30b506479620a0b/tumblr_oswduhKhQo1ubhm7mo1_500.png">
@@ -174,6 +187,9 @@ Le Châle
 
 ### Butterflies -  Reinhold Max Eichler
 <img src="https://64.media.tumblr.com/e7baa091f02de4545233ed63232affc8/25880e3cc2ae752f-ea/s2048x3072/5dde77f4862c58699b6d70f8548067d5cbf1b79e.jpg">
+
+### Yvonne: The Last Portrait
+<img src="https://64.media.tumblr.com/8a9b0e9af844dea17e299d99d54bd528/81c896211680cf33-26/s1280x1920/08ce393e59a0aea8387b4cf9be6f24459097d471.jpg">
 
 ### Bill Brauer
 <img src="https://64.media.tumblr.com/bbeac25ae1641ba734fcf3536da3a3ea/26fc049d53621c3a-d0/s500x750/252d401533d9fded2a37485568fd1e3c6b8e1b03.jpg">
