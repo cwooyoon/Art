@@ -1,3 +1,10 @@
+
+
+
+### Lemons and Jar, Richard Diebenkorn
+<img src="https://64.media.tumblr.com/3b3d2d4e349dee32ae95a7a2e881ad9d/1ca8233807403b4e-52/s1280x1920/1ec1374ed50d471a26439dc729c8db94c02b394a.jpg">
+
+
 ### Piet Mondrian
 <img src="https://64.media.tumblr.com/5e7db2799c63b89f26bfe90fd11dc912/1172d2e7100a9438-80/s1280x1920/6ff521f38449aa519ecb891e0cc1d8332e8cf81c.jpg">
                                                                                                                                            
