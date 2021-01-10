@@ -1,4 +1,14 @@
 # Contemporary Art
+
+### “Bild vom Bild, Vallotton” (2017) by German artist Henning von Gierke (*1947).
+<img src="https://64.media.tumblr.com/a73cec5ad701bd058f9e76b40e443279/tumblr_pe5oir6FHS1w7m7ioo1_1280.jpg">
+
+### Henning von Gierke (German, 1948) - Die Umarmung (The Hug) (1994)
+<img src="https://64.media.tumblr.com/ff2d76ccd2a923063fc0e8f055a551eb/07b14c82b5796b7a-88/s1280x1920/4f961440bc39c3a0ed3eb3ce21792389e2170968.jpg">
+
+### Daimler and Nymphs  -  Peter Blake , 1984., British, b.1932-, oil on canvas , 60 x 50 cm.
+<img src="https://64.media.tumblr.com/aca14ca4b24e05988271aa5d31d21804/8b32065fbebc4273-a7/s1280x1920/bcbc03269282ce023b753870b66a0f311c288994.jpg">
+
 ## Anne Hoenig (American, 1976)
 
 ### Anne Hoenig (American, 1976) - View (2003)
