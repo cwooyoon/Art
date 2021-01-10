@@ -1,5 +1,7 @@
 # Contemporary Art
 
+### Anne Hoenig (American, 1976) - Entombment of Christ (2008)
+<img src="https://64.media.tumblr.com/f664daf47ee160b48e5291648a3bb4ee/47cb01947417b49b-7e/s2048x3072/dafc7537515c96f521882902670a4a3e459f03a3.jpg">
 
 ## Johannes Grützke (German, 1937-2017)
 ### Das Lied auf dem Lande [The Song of the Country], 1983-84. Oil on canvas, 206 × 180 cm.
