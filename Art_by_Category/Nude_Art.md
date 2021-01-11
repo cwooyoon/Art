@@ -1,5 +1,8 @@
 # Nude Arts
 
+### Eliseu Visconti (1866-1944) ~ Esperança (Sonho mistico)
+<img src="https://64.media.tumblr.com/bde477817b46a3c22e912ac2014dc8bb/4deaf62f1d14ea84-48/s500x750/2ffb769d40232523428bef1503050171a7e723c0.jpg">
+
 
 ### Luis Martí Gras - Reclining nude
 <img src="https://64.media.tumblr.com/179507c7c06d84add5d61c6c16b2e40c/35bae98f7428c40e-79/s540x810/5100bc52e4b4b39eee4fdb7b22059eba3ea546c7.jpg">
