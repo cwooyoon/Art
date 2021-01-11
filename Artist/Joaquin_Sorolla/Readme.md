@@ -2,6 +2,9 @@
 
 ## Artworks
 
+### Clotidle sitting on the sofa, 1910, Joaquín Sorolla
+<img src="https://64.media.tumblr.com/eb4fa12f803f285b000e743fc9ecdf5f/d8cb5940d95eeb03-59/s1280x1920/30b527f6a4e405ecfdf927683fd5d3d957f67938.jpg">
+
 ### Joaquín Sorolla, “Desnudo de mujer” ,1902
 <img src="https://64.media.tumblr.com/dc9ecfe552565545caa4552e973cbbdd/94345ba16a3875d0-ca/s1280x1920/20328e7cb37c7c6a7e12dcadb0b8e62c19cf0c5b.jpg">
 
