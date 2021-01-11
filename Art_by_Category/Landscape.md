@@ -1,3 +1,6 @@
+### Spring Equinox, Alina Maksimenko.
+<img src="https://64.media.tumblr.com/29e70cdc77d4c8516cc603babf646fdc/78a4731ff0b2e1ce-d8/s1280x1920/ec4ef704a07c90f5034578308f0f8b28de17ad99.jpg">
+
 ### Late Afternoon in the Bluebonnets, S. W. Texas, 1913, Robert Julian Onderdonk
 <img src="https://64.media.tumblr.com/92cd0224783e7a9a6970b8726a29a917/eb127b646ebbc80f-90/s1280x1920/6558e4115264d7dd8b4191b0dfe87d9a37d0b283.jpg">
 
