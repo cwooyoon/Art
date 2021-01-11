@@ -1,5 +1,8 @@
 # Nude Arts
 
+### Sergey Reznichenko
+<img src="https://64.media.tumblr.com/0e0a99ef52b40f5f178a62ec8ed7dbd6/tumblr_oqmxdxGfZx1r5nyrlo1_500.jpg">
+
 ### Eliseu Visconti (1866-1944) ~ Esperança (Sonho mistico)
 <img src="https://64.media.tumblr.com/bde477817b46a3c22e912ac2014dc8bb/4deaf62f1d14ea84-48/s500x750/2ffb769d40232523428bef1503050171a7e723c0.jpg">
 
