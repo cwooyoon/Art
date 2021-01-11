@@ -1,5 +1,7 @@
 # Nude Arts
 
+### Kädet päänsä yläpuolelle kohottanut naismalli, Adolf von Becker, Finnish National Gallery
+<img src="https://64.media.tumblr.com/26bd509108a052871779066e9c071c9c/0a300d3b00813079-27/s400x600/ba2df3c1974da2f5c0ed7be381cf130c52543eb9.jpg">
 
 ### Auguste Rodin
 <img src="https://64.media.tumblr.com/adb3dd9870bb0ff50a4915d89a08d466/d2e4c453f241a38f-39/s500x750/d5b22f5964390e2dde806670f61c5b1ff291192e.jpg">
