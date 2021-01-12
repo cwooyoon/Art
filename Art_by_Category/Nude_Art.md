@@ -1,5 +1,10 @@
 # Nude Arts
 
+
+
+### “Nude and tapestry” (1981) by American artist Wayne Thiebaud (*1920).
+<img src="https://64.media.tumblr.com/dca221493eaa486e578fea338f8bb939/tumblr_piexp01cYp1w7m7ioo1_500.jpg">
+
 ### Kädet päänsä yläpuolelle kohottanut naismalli, Adolf von Becker, Finnish National Gallery
 <img src="https://64.media.tumblr.com/26bd509108a052871779066e9c071c9c/0a300d3b00813079-27/s400x600/ba2df3c1974da2f5c0ed7be381cf130c52543eb9.jpg">
 
