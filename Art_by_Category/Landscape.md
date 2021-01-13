@@ -1,3 +1,9 @@
+
+
+### 📜 Titolo: La spiaggia bianca👨‍🎨 Autore: Felix Vallotton 🕰 Anno: 1913 🏛 Ubicazione: Collezione privata (Olio su tela. 67×53 cm)
+<img src="https://64.media.tumblr.com/c4409cf24eb8cf8ec052475286159529/7e6f0453c9993c2f-6d/s2048x3072/0fe44db0fba13c2f975e43ee9025872c1e32b962.jpg">
+
+
 ### Spring Equinox, Alina Maksimenko.
 <img src="https://64.media.tumblr.com/29e70cdc77d4c8516cc603babf646fdc/78a4731ff0b2e1ce-d8/s1280x1920/ec4ef704a07c90f5034578308f0f8b28de17ad99.jpg">
 
