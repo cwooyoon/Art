@@ -1,5 +1,10 @@
 # Contemporary Art
 
+
+
+### Such a beautiful painting, ‘Alone Together’, oil on canvas, 2012 by Maria Kreyn
+<img src="https://64.media.tumblr.com/6f2f04ea943e34f657518808a69317f7/tumblr_nk96f2UciP1rod5zjo1_1280.jpg">
+
 ### “Bild vom Bild, Vallotton” (2017) by German artist Henning von Gierke (*1947).
 <img src="https://64.media.tumblr.com/a73cec5ad701bd058f9e76b40e443279/tumblr_pe5oir6FHS1w7m7ioo1_1280.jpg">
 
