@@ -1,6 +1,8 @@
 # Nude Arts
 
 
+### Jeremy Lipking
+<img src="https://64.media.tumblr.com/fff8676bc471fc7ce0e9a05567e9127c/tumblr_ny0ljbp8PF1rftj5po1_500.jpg">
 
 ### “Nude and tapestry” (1981) by American artist Wayne Thiebaud (*1920).
 <img src="https://64.media.tumblr.com/dca221493eaa486e578fea338f8bb939/tumblr_piexp01cYp1w7m7ioo1_500.jpg">
