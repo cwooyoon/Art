@@ -1,5 +1,7 @@
 # Nude Arts
 
+### The 1988 first edition of Sexy Dreams published by TACO. Exceptional and genuinely sexy collection of erotic graphic art from around the world in the 80s. The Japanese artists, Sadeo Sato and Harumi Yamaguchi, among them, are just fire. 
+<img src="https://64.media.tumblr.com/8625326ca7dc2c3a6a915c4f5d95ee8e/62b71859cb01fc88-33/s1280x1920/c19124aa64425fbed09336871422e9ac5e436e79.jpg">
 
 ### Jeremy Lipking
 <img src="https://64.media.tumblr.com/fff8676bc471fc7ce0e9a05567e9127c/tumblr_ny0ljbp8PF1rftj5po1_500.jpg">
