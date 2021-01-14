@@ -1,5 +1,9 @@
 # Nude Arts
 
+
+### Michael Lentz
+<img src="https://64.media.tumblr.com/30a1083c793eb26e026e858847e4d2a0/tumblr_pfb7opKor31s0r6feo1_500.jpg">
+
 ### The 1988 first edition of Sexy Dreams published by TACO. Exceptional and genuinely sexy collection of erotic graphic art from around the world in the 80s. The Japanese artists, Sadeo Sato and Harumi Yamaguchi, among them, are just fire. 
 <img src="https://64.media.tumblr.com/8625326ca7dc2c3a6a915c4f5d95ee8e/62b71859cb01fc88-33/s1280x1920/c19124aa64425fbed09336871422e9ac5e436e79.jpg">
 
