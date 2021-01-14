@@ -1,5 +1,7 @@
 # Nude Arts
 
+### Vlaho Bukovac (1855 - 1922) Croatian painter,  "Magdalena",  oil on canvas, 1898. 
+<img src="https://64.media.tumblr.com/fa64a0aa19b66b241a3cd8c0b9adb772/f560f5b9b768c4b4-b0/s1280x1920/ed54b8b478b7de57da26c1b7d26c23c376d486e4.jpg">
 
 ### Richard Wathen (British, 1971) - Leonid (2007)
 <img src="https://64.media.tumblr.com/bb49a94504355d5b612c5e374d43b08c/3e0391873d9f0aec-46/s2048x3072/ba461f404c0c02e14dc2e83536cf97b05a1a1ab7.jpg">
