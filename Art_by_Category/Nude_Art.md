@@ -1,6 +1,13 @@
 # Nude Arts
 
 
+### Richard Wathen (British, 1971) - Leonid (2007)
+<img src="https://64.media.tumblr.com/bb49a94504355d5b612c5e374d43b08c/3e0391873d9f0aec-46/s2048x3072/ba461f404c0c02e14dc2e83536cf97b05a1a1ab7.jpg">
+
+
+### Study of a Girl’s Head, Thomas Eakins
+<img src="https://64.media.tumblr.com/5354aa915511c253c54f1bdf000dbcc2/tumblr_pfgtxshoIL1w81orfo1_1280.jpg">
+
 ### Michael Lentz
 <img src="https://64.media.tumblr.com/30a1083c793eb26e026e858847e4d2a0/tumblr_pfb7opKor31s0r6feo1_500.jpg">
 
