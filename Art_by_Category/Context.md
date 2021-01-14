@@ -3,8 +3,8 @@
 
 
 
-
-
+### Ciro Palumbo, “Visioni”
+<img src="https://64.media.tumblr.com/6d2a6279746fd1ff15c2330835ace1db/48a0212d109154db-03/s1280x1920/09a09e39e7e3399724b0b5e9d70cd2084ec77a84.jpg">
 
 ### Antaeus setting down Dante and Virgil in the last circle of hell, 1827, William Blake
 Medium: pen,watercolor,paper
