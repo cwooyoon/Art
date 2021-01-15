@@ -1,7 +1,8 @@
 
 
 
-
+### John Watkiss ~ http://www.johnwatkissfineart.com
+<img src="https://64.media.tumblr.com/9655d2b924d6f3a0297f5fdbc763b98e/0ee0badbc582ea00-05/s640x960/32f46aee5be4bb40f9a0a873bd0694d5b5402e19.jpg">
 
 ### Ciro Palumbo, “Visioni”
 <img src="https://64.media.tumblr.com/6d2a6279746fd1ff15c2330835ace1db/48a0212d109154db-03/s1280x1920/09a09e39e7e3399724b0b5e9d70cd2084ec77a84.jpg">
