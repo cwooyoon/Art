@@ -1,5 +1,14 @@
 # Nude Arts
 
+
+### Offended bride, Vladimir Grigoryan
+
+The offended bride is weeps and looks at the wall.
+
+https://www.saatchiart.com/art/Painting-Offended-bride/1017515/3841915/view
+
+<img src="https://64.media.tumblr.com/eeab63d5511f2012c63d70adbe19cb95/80f64c337a02f4f6-1c/s400x600/f8c46c4ed4004f47af786060433a4c7e2c0f459d.jpg">
+
 ### ”Cascading Light” by Jennifer Hannaford (6x24 Oil on Board)
 <img src="https://64.media.tumblr.com/da61b1deee97082b4228514859ac406a/tumblr_puk9nxXLEg1yrr1tso1_1280.jpg">
 
