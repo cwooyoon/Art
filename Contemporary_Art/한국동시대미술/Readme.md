@@ -25,7 +25,7 @@
 * 유근택: 학습된 안목과 공식에 따라 거대한 산세와 기암괴석을 골법용필과 기운생동으로 담는 동양화의 인습을 떠나려는 시도...
 * 2002 동풍 전시
   - 지필묵에 의존하지 않고 우드락, 화선지, 탈지면과 프라모델로 3차원 실경산수를 번역한 설치물: 임택 옮겨진 산수
-  - <img src="http://apks.co/upload/artwork/500_2cb978bd70acedc9eac90b5a8b1e1f67.jpg"
+  - <img src="http://apks.co/upload/artwork/500_2cb978bd70acedc9eac90b5a8b1e1f67.jpg">
   
   
   
