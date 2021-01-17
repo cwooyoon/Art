@@ -18,6 +18,6 @@
 * 전체의 일부분에서 '전체의 분위기'를 발견하게...
   - 붓질과 선택과 집중을 통해, 회화의 새로운 존재감을 탐구하는 그림
 * https://www.youtube.com/watch?v=3afcXs6c8CI
-
-<img src="https://www.google.com/url?sa=i&url=http%3A%2F%2Fwww.artinfo.kr%2Fnews%2FarticleView.html%3Fidxno%3D1945&psig=AOvVaw015RHVAGN98cXqB0lI-Z3Q&ust=1610975757397000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJDHxsSGo-4CFQAAAAAdAAAAABAD">
+* http://www.akive.org/artist/artworks/A0000209&a_pageNo=3
+<img src="http://www.akive.org/upload/arts/1309511985505_500.jpg">
 
