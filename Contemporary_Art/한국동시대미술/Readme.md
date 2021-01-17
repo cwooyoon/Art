@@ -39,7 +39,7 @@
 <img src="https://topclass.chosun.com/news_img/0804/0804_076_2.jpg">
 
 * 박윤영 몽유생리도 2004
-<img src="https://scontent-ssn1-1.xx.fbcdn.net/v/t1.0-1/1011276_656988877671604_981690495_n.jpg?_nc_cat=104&ccb=2&_nc_sid=dbb9e7&_nc_ohc=xzYQHiLW6A4AX9pACUH&_nc_ht=scontent-ssn1-1.xx&oh=08b4b95c6f58f5cd08a0259cec85612b&oe=602B941F">
+<img src="http://blog.jinbo.net/attach/325/190109039.jpg">
 
 * 이은실 미학과 윤리학의 세대교체
   - 소마미술관, “일부러 불편하게”展 : https://m.blog.naver.com/ostw/221326679684
