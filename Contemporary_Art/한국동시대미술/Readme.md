@@ -32,3 +32,19 @@
   - 동양화는 흔히 족자, 지필묵, 화론, 사군자 같은 고정된 재료나 주제와 항상 묶여서 인식된다. 동양화의 정체성이 이처럼 고정불변하다는 점을 뒤집어 말하면 동양화를 구성하는 고정된 주제만 일부 교체해도 파격적인 효과를 남길 수 있다는 의미이다.
   - <img src="https://t1.daumcdn.net/cfile/blog/995F3A3C5D36AC032F?original">
   
+### 신여성 동양화가
+* 인습적인 주제에서 벗어나 세속적인 서사를...
+* 김정욱
+<img src="https://topclass.chosun.com/news_img/0804/0804_076.jpg">
+<img src="https://topclass.chosun.com/news_img/0804/0804_076_2.jpg">
+
+* 박윤영 몽유생리도 2004
+<img src="https://scontent-ssn1-1.xx.fbcdn.net/v/t1.0-1/1011276_656988877671604_981690495_n.jpg?_nc_cat=104&ccb=2&_nc_sid=dbb9e7&_nc_ohc=xzYQHiLW6A4AX9pACUH&_nc_ht=scontent-ssn1-1.xx&oh=08b4b95c6f58f5cd08a0259cec85612b&oe=602B941F">
+
+* 이은실 미학과 윤리학의 세대교체
+  - 소마미술관, “일부러 불편하게”展 : https://m.blog.naver.com/ostw/221326679684
+  - 4전시실 이은실 작가의 '부합'
+<img src="https://mblogthumb-phinf.pstatic.net/MjAxODA3MjZfMTU1/MDAxNTMyNTQzMjY2NTg2.g1SQExx4RyYbEIiykkfharsk7-XAfeR6mnNQtRqaq0Mg.6D0gRjOnwrB7CCfFtuCqpKUpXWkRFeEzb2zhXiL92c4g.JPEG.ostw/%EC%9D%B4%EC%9D%80%EC%8B%A4_%EC%9E%91%EA%B0%80%EC%9D%98_%EB%B6%80%ED%95%A9_01.jpg?type=w800">
+  - 이은실 작가의 '태도'
+<img src="https://mblogthumb-phinf.pstatic.net/MjAxODA3MjZfMTgw/MDAxNTMyNTQzMzIxMTE2.VeHI4i1rmQhJzCPsICd_ypaAkTmhrU5q5vO4ixQ2uNog.hZehCfJlgiZOPB_73trTrARaobh-BVVe_scVzmwNdJUg.JPEG.ostw/%EC%9D%B4%EC%9D%80%EC%8B%A4_%EC%9E%91%EA%B0%80%EC%9D%98_%ED%83%9C%EB%8F%84_01.jpg?type=w800">
+
