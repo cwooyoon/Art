@@ -6,3 +6,7 @@
 
 ## [전시] 문성식 개인전: 아름다움, 기묘함, 더러움 (2019.1128~1231국제갤러리 K2, K3) 리뷰
 * https://www.youtube.com/watch?v=rDeG_lwEfqU
+
+## [전시] 강석호 개인전 Untitled 윌링앤딜링
+* 회화성, 회화라는 장르의 존재감을 새롭게 인식하는 작품과 전시
+* https://www.youtube.com/watch?v=3afcXs6c8CI
