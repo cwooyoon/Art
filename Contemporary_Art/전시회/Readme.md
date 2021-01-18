@@ -1,3 +1,8 @@
+## [전시] 허윤희 개인전 소망을품다 (2020.1017~1108 영은미술관) 리뷰
+* https://www.youtube.com/watch?v=q9z2HKkZlho
+* http://www.vop.co.kr/A00001067574.html
+<img src="https://archivenew.vop.co.kr/images/4d4e55c5c6e8884b26ac2881eb2769f6/2016-09/marked/10040341_3333.jpg">
+
 ## [미술/전시] 20회 송은미술대상: 신이피 오종 전현선 조영주 (2020.1211~2021.0206 송은아트스페이스)
 * https://www.youtube.com/watch?v=pvQCYFumTUE
 
