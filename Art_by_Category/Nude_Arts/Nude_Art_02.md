@@ -8,6 +8,16 @@
 <img src="https://64.media.tumblr.com/e643f2bb7bb3b2800e433517503c5556/395e8e7cbfc6b93e-67/s640x960/fb9c9e5a24c78932099fd90af91914570625ce8e.jpg">
 
 
+##
+
+## Sayae Heroika
+
+### Sayae Heroika aka María de la Paz Ortiz aka Heroika (Chilean, based Valparaíso, Chile) - Lilith and Eva, 2018, Drawings: Mixed Media: Graphite, +Digital Color
+<img src="https://64.media.tumblr.com/491b1415e11174daa832ef2769be0826/3f6b32ffb5e50e37-f2/s1280x1920/e5290bc7a1a84df1dd86675855d57b3d6ec7e2a8.jpg">
+
+
+##
+
 ## Stephen Early
 
 ### Stephen Early
