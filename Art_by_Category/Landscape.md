@@ -1,3 +1,8 @@
+### Franklin Carmichael, Mirror Lake (1929)
+<img src="https://64.media.tumblr.com/9ae94b2d173fb9f0800b860620b19a18/ac5d6ed223da4f41-11/s640x960/573a5f4e7980432bd2520e079765d169b994678c.jpg">
+
+
+
 ### Point Lobos Trees, 1919, Guy Rose
 <img src="https://64.media.tumblr.com/e06bfd8c73c2a20153224a1a1b178564/044151f596fbc359-f8/s1280x1920/c8103c4e1f1a28e854adc4bd3676b068674ea6cc.jpg">
 
