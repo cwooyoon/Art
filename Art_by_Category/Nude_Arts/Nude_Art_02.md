@@ -10,6 +10,10 @@ Cormon was professor and mentor to many artists including Toulouse-Lautrec. He w
 
 <img src="https://64.media.tumblr.com/745810d8f03e4f9e9da2127bc80c022a/7a80311144530669-6c/s2048x3072/b2009a4d04edbb6a7d485816b7e6cd8592daa2bc.jpg">
 
+##
+
+### Hendrik Jan Wolter, Reclining nice
+<img src="https://64.media.tumblr.com/05dbbac39e079073e01485b905c972a2/b256ece203587b12-e7/s1280x1920/09c2dab3182044c33a054bf0954a247c3ff4cf0d.jpg">
 
 ##
 
