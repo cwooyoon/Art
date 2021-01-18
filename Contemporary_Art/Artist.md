@@ -1,5 +1,7 @@
 # Contemportary Artist
 
+##
+
 ## Fathi Afifi 
 
 ### Fathi Afifi (Egyptian, 1960) - Untitled (2009)
@@ -11,11 +13,14 @@
 ### Fathi Afifi (Egyptian, 1960) - Untitled (2009)
 <img src="https://64.media.tumblr.com/b5cd89baf94608f5feee8060b83aa842/3debb4051c1fb773-cd/s1280x1920/13d5f215527c6bd2db79470cd659db5edecf03a1.jpg">
 
+##
 
 ## julia fullerton-batten
 <img src="https://www.researchgate.net/publication/314027727/figure/fig3/AS:465665791401986@1488034784360/Figura-4-Julia-Fullerton-Batten-In-Between-2008-C-Print-102-x-137-cm.png">
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRk05tdpjDsjlpiZCIwUYDeWF0PZ9YQVRshFw&usqp=CAU">
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSf-uimQmSpgwR6Qzw0lBIoSiIzdqIZrgPzkWkuFb9jQi4DDY_W9lR2ZB1qRjnioIX-FAvp6DmjTviNnKdnnkErioGJS8fupYwmGw&usqp=CAU&ec=45750088">
+
+##
 
 ## Min Jung-Yeon
 
@@ -23,6 +28,7 @@
 <img src="https://64.media.tumblr.com/e1f36ae52622492235dd3b3a4977fbb0/338b414c69644d9a-df/s1280x1920/a4d1eddce2190f0f1037ba3b680277b4427672b5.jpg">
 
 
+##
 
 ## Zaki Haider
 
