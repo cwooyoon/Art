@@ -2,6 +2,8 @@
 
 
 
+### Kees Van Dongen
+<img src="https://64.media.tumblr.com/6bbe7d211cd42516078aaf4455f2e830/d5c7b44d4c40f252-1a/s500x750/9168c64a5b9c2a1150de452a1a684a266ba3f1f7.jpg">
 
 
 ### Woman in Kimono Holding a Japanese Fan, William Merritt Chase
