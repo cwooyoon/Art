@@ -20,3 +20,6 @@ https://www.youtube.com/watch?v=fhLfLE50NnM
 https://www.youtube.com/watch?v=WDk7Y-egp40
 ## 한국 동시대미술: 2002년 사진 전성시대
 https://www.youtube.com/watch?v=Ie2eXBsGwS0&ab_channel=%EB%B0%98%EC%9D%B4%EC%A0%95&fbclid=IwAR2cYMSZtVwU726dbanK25KDsLVZg7Od76qmrPQrv8rW-7xHl6I4oLHz6Ro
+https://www.youtube.com/watch?v=wLAipC20TKs
+
+
