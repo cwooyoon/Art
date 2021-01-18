@@ -2,6 +2,17 @@
 
 ##
 
+## Fernand (Félix) Cormon
+
+### Murder in the Seraglio. 1874. by Fernand (Félix) Cormon.
+
+Cormon was professor and mentor to many artists including Toulouse-Lautrec. He was known to be a warm and approachable man who gave his students great freedom.
+
+<img src="https://64.media.tumblr.com/745810d8f03e4f9e9da2127bc80c022a/7a80311144530669-6c/s2048x3072/b2009a4d04edbb6a7d485816b7e6cd8592daa2bc.jpg">
+
+
+##
+
 ## Louis Treserras
 
 ### Louis Treserras was born in Toulouse, France. He is a contemporary artist with a highly classical technique. Treserras is a self-taught painter, photographer, and sculptor. (detail)
