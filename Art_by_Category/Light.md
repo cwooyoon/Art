@@ -1,5 +1,7 @@
 
 
+### Semyon Faibisovich (Russian, b. 1949), Therein Lies the Question, 1987. Oil on canvas, 78.5 x 59 in.
+<img src="https://64.media.tumblr.com/efaf6ed53bdc2563c70c6ddfe0331313/7b17420241fb0fdd-09/s2048x3072/1702a05ae747ac4d007af6137b3dab69f6e8c3a0.jpg">
 
 
 ### Kees Van Dongen
