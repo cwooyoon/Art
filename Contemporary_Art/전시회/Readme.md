@@ -1,3 +1,8 @@
+## [전시 리뷰] 박광수 개인전 "영영 없으리", 2020, 학고재 갤러리 (CYA apophenia)개인전, 전시회
+* https://www.youtube.com/watch?v=GB3PNDa33mE
+* 언어가 있기 전 인간은 어떻게 사물을 인지하고 표현했을까?
+
+
 
 ## [전시] 투썸 #1. 강세리 함진 :디테일 (2020.1008~1112 갤러리 유진목공소) 오프닝 풍경
 * https://www.youtube.com/watch?v=477y5MKZcDI
