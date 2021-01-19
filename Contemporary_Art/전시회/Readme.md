@@ -1,3 +1,8 @@
+
+## [전시] 투썸 #1. 강세리 함진 :디테일 (2020.1008~1112 갤러리 유진목공소) 오프닝 풍경
+* https://www.youtube.com/watch?v=477y5MKZcDI
+
+
 ## [전시] 허윤희 개인전 소망을품다 (2020.1017~1108 영은미술관) 리뷰
 * https://www.youtube.com/watch?v=q9z2HKkZlho
 * http://www.vop.co.kr/A00001067574.html
