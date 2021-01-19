@@ -25,6 +25,11 @@ Cormon was professor and mentor to many artists including Toulouse-Lautrec. He w
 
 ##
 
+### Richard Laeton - Gary
+<img src="https://64.media.tumblr.com/5a4d44b77df62b5043baa213d569e21b/6cc53e5b3b356970-31/s640x960/4ed1c7193e41be0980873d236febf75515361e75.jpg">
+
+##
+
 ## Sayae Heroika
 
 ### Sayae Heroika aka María de la Paz Ortiz aka Heroika (Chilean, based Valparaíso, Chile) - Lilith and Eva, 2018, Drawings: Mixed Media: Graphite, +Digital Color
