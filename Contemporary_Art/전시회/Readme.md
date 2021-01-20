@@ -1,3 +1,8 @@
+## 미술가 김지예 작품세계
+* https://www.youtube.com/watch?v=XhLb3GJMp1M
+* 성모의 내장, 에로티시즘 & 장식성
+
+
 ## [전시 리뷰] 박광수 개인전 "영영 없으리", 2020, 학고재 갤러리 (CYA apophenia)개인전, 전시회
 * https://www.youtube.com/watch?v=GB3PNDa33mE
 * 언어가 있기 전 인간은 어떻게 사물을 인지하고 표현했을까?
