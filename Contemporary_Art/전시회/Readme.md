@@ -2,6 +2,10 @@
 * https://www.youtube.com/watch?v=ZfQYyOpLYuQ
 * 김동현, 재즈민
 
+## 미술 비전공자의 질문: 미술 창작의 기본기는 무엇인가요?
+* https://www.youtube.com/watch?v=7Sjz3sZn-VA
+* 창작의 기본기: 고립(X)
+
 ## 미술가 김지예 작품세계
 * https://www.youtube.com/watch?v=XhLb3GJMp1M
 * 성모의 내장, 에로티시즘 & 장식성
