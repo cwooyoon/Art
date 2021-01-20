@@ -1,3 +1,7 @@
+## 미술 비전공자의 미술 (2020.0819~0910 갤러리 유진목공소) 리뷰
+* https://www.youtube.com/watch?v=ZfQYyOpLYuQ
+* 김동현, 재즈민
+
 ## 미술가 김지예 작품세계
 * https://www.youtube.com/watch?v=XhLb3GJMp1M
 * 성모의 내장, 에로티시즘 & 장식성
