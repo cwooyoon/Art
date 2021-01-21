@@ -1,3 +1,7 @@
+## 전시리뷰채널 Apophenia
+
+## [전시 리뷰] 김환 개인전 "신체의 지각", 2019, 잠실창작스튜디오 하늘연 (CYA apophenia)개인전, 전시회
+*https://www.youtube.com/watch?v=pep4_vd5js8
 
 ## [대안공간 루프] 전현선 작가 인터뷰 두번째 / 전현선 개인전-나란히 걷는 낮과 밤
 * https://www.youtube.com/watch?v=Dn5bw6HpRlQ
