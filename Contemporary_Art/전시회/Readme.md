@@ -11,6 +11,10 @@
 * https://www.youtube.com/watch?v=ZfQYyOpLYuQ
 * 김동현, 재즈민
 
+## 미대 대학원 온라인 줌Zoom 비대면 면담: 공모전 회화 강세에 대한 추가 답변
+* https://www.youtube.com/watch?v=7a3fNKkpeaE
+
+
 ## 미술 비전공자의 질문: 미술 창작의 기본기는 무엇인가요?
 * https://www.youtube.com/watch?v=7Sjz3sZn-VA
 * 창작의 기본기: 고립(X)
