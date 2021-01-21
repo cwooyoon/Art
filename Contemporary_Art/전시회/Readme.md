@@ -1,3 +1,8 @@
+
+## [대안공간 루프] 전현선 작가 인터뷰 두번째 / 전현선 개인전-나란히 걷는 낮과 밤
+* https://www.youtube.com/watch?v=Dn5bw6HpRlQ
+
+
 ## 미술 비전공자의 미술 (2020.0819~0910 갤러리 유진목공소) 리뷰
 * https://www.youtube.com/watch?v=ZfQYyOpLYuQ
 * 김동현, 재즈민
