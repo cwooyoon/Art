@@ -1,5 +1,9 @@
 ## 전시리뷰채널 Apophenia
 
+## 미술가 최경태 작품세계
+* https://www.youtube.com/watch?v=BFG2xkX6B4M
+
+
 ## [전시 리뷰] 김환 개인전 "신체의 지각", 2019, 잠실창작스튜디오 하늘연 (CYA apophenia)개인전, 전시회
 *https://www.youtube.com/watch?v=pep4_vd5js8
 
