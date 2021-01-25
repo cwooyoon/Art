@@ -1,3 +1,6 @@
+### Women in white stockings, 1924, Suzanne Valadon
+<img src="https://64.media.tumblr.com/7f7ed71f7ef129463228b8cab4a0b4db/7b1e689dfc46ac52-66/s500x750/f0336a6e3a651d5cdce8d0a4bdbffa510d8d7abf.jpg">
+
 ### Catherine Reclining Nude on a Leopard Skin - Suzanne Valadon
 <img src="https://64.media.tumblr.com/0bb1563fe3b3f612f5cf4202a4e3f784/33055751786f809f-58/s1280x1920/695399c500281fb60d46afef0e872085474a0603.jpg">
 
