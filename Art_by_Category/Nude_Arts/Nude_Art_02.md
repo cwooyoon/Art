@@ -1,5 +1,9 @@
 # Nude Arts 2021.01
 
+
+### Nude with Chinese Background, Leopold Seyffert
+<img src="https://64.media.tumblr.com/6feb4b13222d55b60585d09b9c801f50/tumblr_myzo8kLniC1s22kkso1_500.jpg">
+
 ### Richard Harper
 <img src="https://64.media.tumblr.com/4d0667aa2b32510ec388acbc516361f8/tumblr_oyds2zqHBK1t8w0sbo1_1280.jpg">
 
