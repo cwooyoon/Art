@@ -1,5 +1,13 @@
 # Abstract Art
 
+### Blue and Red from the series Line Form Color, Ellsworth Kelly, 1951, MoMA: Drawings and Prints
+Gift of the artist and purchased with funds provided by Jo Carole and Ronald S. Lauder, Sarah-Ann and Werner H. Kramarsky, Mr. and Mrs. James R. Hedges, IV, Kathy and Richard S. Fuld, Jr. and Committee on Drawings Funds
+Size: 7 ½ x 8" (19 x 20.3 cm)
+Medium: Cut-and-pasted color-coated paper on color-coated paper
+http://www.moma.org/collection/works/109758
+
+<img src="https://64.media.tumblr.com/b032b975ab7630972ad3fbbd61d4d886/f0f10259a10bfa7c-26/s640x960/8bb3b4479780c60554b0a37fdd23e9debbae2149.jpg">
+
 ### Soly Cissé (Senegalese, b. 1969), Homme des champs, 2019. Oil on canvas, 355.6 × 355.6 cm
 <img src="https://64.media.tumblr.com/106ac9e7eb65fe08ea87153a16125542/776aa6870bc421a6-68/s2048x3072/7b25a8107f2b52e71605fbaa580b960e8af00eeb.jpg">
 
