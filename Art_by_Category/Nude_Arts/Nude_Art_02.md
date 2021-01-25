@@ -1,5 +1,9 @@
 # Nude Arts 2021.01
 
+### Richard Harper
+<img src="https://64.media.tumblr.com/4d0667aa2b32510ec388acbc516361f8/tumblr_oyds2zqHBK1t8w0sbo1_1280.jpg">
+
+
 ### Pintor alemán Wilhelm Gallhof (1878-1918)
 <img src="https://64.media.tumblr.com/c65a86699fe110463c1056f391b21dcb/39d56f93467e2da9-2b/s1280x1920/113bb1056a833343f60b20eaf67ae621c290560e.jpg">
 
