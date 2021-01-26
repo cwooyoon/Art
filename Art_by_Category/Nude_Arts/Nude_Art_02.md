@@ -1,5 +1,8 @@
 # Nude Arts 2021.01
 
+### Given: 1. The Waterfall, 2. The Illuminating Gas by Marcel Duchamp (1966) #surrealism #art https://t.co/A6jk8vztan http://ift.tt/2gXK3I2
+<img src="https://64.media.tumblr.com/938feffaa45be3432129c43243158024/tumblr_ojyj7nBvig1v0u0fjo1_1280.jpg">
+
 
 ### Nude with Chinese Background, Leopold Seyffert
 <img src="https://64.media.tumblr.com/6feb4b13222d55b60585d09b9c801f50/tumblr_myzo8kLniC1s22kkso1_500.jpg">
