@@ -1,5 +1,16 @@
 # Nude Arts 2021.01
 
+
+
+### In the Name of Humanity
+
+Jan Kleintjes (24 May 1872 – 2 May 1955) was a Dutch painter. His work was part of the art competitions at the 1928 Summer Olympics and the 1936 Summer Olympics. Kleintjes’ work was included in the 1939 exhibition and sale Onze Kunst van Heden (Our Art of Today) at the Rijksmuseum in Amsterdam.
+
+Onze Kunst van Heden (Contemporary Artists/Our Art of Today) was an exhibition held in the winter of 1939 through 1940 at the Rijksmuseum in Amsterdam. Due to the threat of invasion in the years leading up to World War II, the Netherlands’ government stored many items from the Rijksmuseum’s permanent collection. The resulting empty gallery space was utilized by contemporary Dutch artists to exhibit and sell their art. 750 artists exhibited 3,163 works of art.
+
+<img src="https://64.media.tumblr.com/b8517e5e292e6125bfd7e53c054c1456/tumblr_ovx3kwWS3l1rv2dfko1_1280.jpg">
+
+
 ### Given: 1. The Waterfall, 2. The Illuminating Gas by Marcel Duchamp (1966) #surrealism #art https://t.co/A6jk8vztan http://ift.tt/2gXK3I2
 <img src="https://64.media.tumblr.com/938feffaa45be3432129c43243158024/tumblr_ojyj7nBvig1v0u0fjo1_1280.jpg">
 
