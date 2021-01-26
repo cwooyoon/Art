@@ -1,5 +1,7 @@
 # Contemporary Art
 
+### Aubrey Levinthal (American, 1986) - Pregnant Woes (2017)
+<img src="https://64.media.tumblr.com/0b785a763679adfa3930d91bdbb0bca4/75f0bb0356cf5c66-fe/s2048x3072/c025efc32569d3599137408c31c5751bfc991d91.jpg">
 
 
 ### Such a beautiful painting, ‘Alone Together’, oil on canvas, 2012 by Maria Kreyn
