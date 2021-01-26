@@ -1,5 +1,7 @@
 # Figurative Arts
 
+### Art by Eugeny  Monahov
+<img src="https://64.media.tumblr.com/d6f01eb6abc16cff5de81ed2c4111ca2/91ab18b3fe05cb4f-3f/s1280x1920/d7f2afd7c58c0fd3b84d05561d71b7d187411e92.jpg">
 
 
 ### Flaming June 1895. Frederic Leighton 120 x 120 cm, oil on canvas, Museo de Arte de Ponce, Puerto Rico
