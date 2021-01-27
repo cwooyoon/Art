@@ -1,5 +1,7 @@
 # Nude Arts 2021.01
 
+### Ricardo Arrue (Spanisch, 1890–1978) and (or?) Ramiro Arrue (Spanish, 1892–1971).
+<img src="https://64.media.tumblr.com/9f3f268f9aef1f54fc5e747cf5b477da/ea668c6278d3972f-e0/s1280x1920/e995279364e2c669c2e576f43fc59b8e22c9251f.jpg">
 
 ### The Model, Kuzma Petrov-Vodkin
 <img src="https://64.media.tumblr.com/734ece063ada40f36a2740123cf5c937/ef45067dfa24a05d-20/s1280x1920/0e446cd4dee208a09aede6ea2b11c82353befca4.jpg">
