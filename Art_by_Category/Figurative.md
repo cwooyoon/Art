@@ -1,5 +1,13 @@
 # Figurative Arts
 
+
+### Dmitry Vorsin is a Russian artist who has inherited heavily from thet Surrealist movement. His ink drawings are toned with tea, often conveying a whimsical yet psychological uneasiness. 
+
+ His imageries are filled with tormented bodies, erotic positions, and vulgar yet elaborate details.
+ 
+ <img src="https://64.media.tumblr.com/5ce59191aecb39d0545848e93a103cb3/a32c7cdad9a16baa-94/s500x750/b575f3490898f980f2ebbcc44d1f8ed0a61df0f4.jpg">
+ 
+ 
 ### Art by Eugeny  Monahov
 <img src="https://64.media.tumblr.com/d6f01eb6abc16cff5de81ed2c4111ca2/91ab18b3fe05cb4f-3f/s1280x1920/d7f2afd7c58c0fd3b84d05561d71b7d187411e92.jpg">
 
