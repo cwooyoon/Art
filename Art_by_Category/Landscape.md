@@ -1,3 +1,13 @@
+
+
+
+
+### Sailing Boats, Dieppe Harbor, 1885, John Henry Twachtman
+Medium: oil,panel
+https://www.wikiart.org/en/john-henry-twachtman/sailing-boats-dieppe-harbor-1885
+
+<img src="https://64.media.tumblr.com/60b766cca0966f47e01210b736c41cb7/32c64707e51eae36-ec/s1280x1920/1485fbecebc472374164dfbb541b86881b311a9e.jpg">
+
 ### Along the River, Winter, 1888, John Henry Twachtman
 <img src="https://64.media.tumblr.com/540a345fc7b799499e0ff2343348764c/ca20745731c578e3-c1/s1280x1920/cd20df481dbf8f1255d6ceb9cd38ed8a5cd43b13.jpg">
 
