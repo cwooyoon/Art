@@ -1,3 +1,7 @@
+
+### Femme a la Toilette, 1913, Suzanne Valadon
+<img src="https://64.media.tumblr.com/6ae2fed4957ef7f835bc61d3138191fa/3155839978195f5f-53/s400x600/1c497fffec18f26be04e7d3bdbb9ed537a6dd0a7.jpg">
+
 ### Women in white stockings, 1924, Suzanne Valadon
 <img src="https://64.media.tumblr.com/7f7ed71f7ef129463228b8cab4a0b4db/7b1e689dfc46ac52-66/s500x750/f0336a6e3a651d5cdce8d0a4bdbffa510d8d7abf.jpg">
 
