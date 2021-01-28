@@ -1,5 +1,9 @@
 # Nude Arts 2021.01
 
+
+### Péter Abrudan (Hungarian, 1907-1979) 
+<img src="https://64.media.tumblr.com/c4be4af18f1059b0ee1a6378f17f4bbf/2805d5526191a783-21/s1280x1920/128b866da175e0fd145be1c5fcb2bc0651d6230b.jpg">
+
 ### Ricardo Arrue (Spanisch, 1890–1978) and (or?) Ramiro Arrue (Spanish, 1892–1971).
 <img src="https://64.media.tumblr.com/9f3f268f9aef1f54fc5e747cf5b477da/ea668c6278d3972f-e0/s1280x1920/e995279364e2c669c2e576f43fc59b8e22c9251f.jpg">
 
