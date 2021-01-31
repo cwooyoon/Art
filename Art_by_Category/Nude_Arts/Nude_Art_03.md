@@ -4,6 +4,8 @@
 
 
 
+## Zorikto Dorzhiev, Buryatia
+<img src="https://64.media.tumblr.com/e3403a5a8ecefe75cff5555548b1dd40/b17cd2a2109f609b-18/s500x750/d8d659e86fd0de59ea959523c242b027e39774bf.jpg">
 
 
 ## Pygmalion and Galatea by Jean-Léon Gérôme, European Paintings
