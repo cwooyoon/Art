@@ -1,4 +1,6 @@
 
+### Susan Ryder (British, b. 1944) - Yellow Lilies, oil satin canvas, 48 x 68 cm
+<img src="https://64.media.tumblr.com/37f720bbe0fca1ec0281f297507f3978/215ab6f64d0156a8-6c/s1280x1920/cccee5a1ee77da2377bf630c85745edf83488c66.jpg">
 
 
 ### Lemons and Jar, Richard Diebenkorn
