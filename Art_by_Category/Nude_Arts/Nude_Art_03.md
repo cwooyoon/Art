@@ -1,3 +1,12 @@
+## Egon Schiele 
+1890-1918
+
+Rückenakt mit orangefarbenen Strümpfen, 1918
+
+18¼ x 11⅝ in. | 46.1 x 29.5 cm.
+
+<img src="https://64.media.tumblr.com/8b63300e3451062d386569db1acdc2c6/a1398ffdc27817c0-b4/s2048x3072/113c7efc26c61a3a8e3a9d82221c0805bbe4326e.jpg">
+
 ## Kiss Andrea
 <img src="https://64.media.tumblr.com/406ad0b401d4f57a7e7cab5c235fcc31/430449e058a0d271-ca/s500x750/7c141875d151488fca2086d52349ca143559f757.jpg">
 
