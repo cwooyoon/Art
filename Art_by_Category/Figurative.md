@@ -1,6 +1,10 @@
 # Figurative Arts
 
+### Siesta, 1969
 
+Jean-Pierre Cassigneul (1935 - )
+
+<img src="https://64.media.tumblr.com/cb29a2b231ebd7456ea7f629db7b175e/0b8cdbc57a884de2-6a/s1280x1920/a788c5fddd88e61449c90bcfd5ca10e805c1abf9.jpg">
 
 ### James Sant (1820-1916), Courage, Anxiety and Despair: Watching the Battle, 1850, oil on canvas, 121.9 x 152.4 cm. In a private collection.
  <img src="https://64.media.tumblr.com/0d1a1a4ff7b08383b61e636363b41fd8/598299ddf4dabaa4-02/s2048x3072/632c13c37c1b278fb68c3eaa2837df771e6b2f84.jpg">
