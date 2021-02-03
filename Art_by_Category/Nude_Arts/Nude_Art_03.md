@@ -1,4 +1,6 @@
 
+## Max Pietschmann (German, 1865-1952) 
+<img src="https://64.media.tumblr.com/08f7b2f099ad362b9df5b20c4eb0620f/aaef23a4a9096c05-ef/s2048x3072/a7aa5bbbd968005e5654135a7f6d02ab51abafd5.jpg">
 
 ## The Muse of Painting - Henri Martin
 1900
