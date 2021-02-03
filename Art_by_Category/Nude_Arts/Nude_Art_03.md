@@ -1,4 +1,9 @@
 
+
+## The Muse of Painting - Henri Martin
+1900
+<img src="https://64.media.tumblr.com/d5d10c5478c9342c81ddc0e763883c5d/tumblr_mt4sooP6ox1rv2dfko1_1280.jpg">
+
 ## Juliette Lambard
 
 the White Princess, Paris
