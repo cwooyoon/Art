@@ -1,5 +1,9 @@
 # Abstract Art
 
+
+### Fredrik Værslev (Norwegian, b. 1979), Untitled (Indipenza Studio #01), 2012. Primer, spray paint and white spirit on canvas, 195.8 x 140.5 cm.
+<img src="https://64.media.tumblr.com/42116a2c147436c0ba482762139eea44/540080a2e296d6b8-06/s2048x3072/0eb122005113acecc43fd583d3649e56bf570c7d.jpg">
+
 ### Blue and Red from the series Line Form Color, Ellsworth Kelly, 1951, MoMA: Drawings and Prints
 Gift of the artist and purchased with funds provided by Jo Carole and Ronald S. Lauder, Sarah-Ann and Werner H. Kramarsky, Mr. and Mrs. James R. Hedges, IV, Kathy and Richard S. Fuld, Jr. and Committee on Drawings Funds
 Size: 7 ½ x 8" (19 x 20.3 cm)
