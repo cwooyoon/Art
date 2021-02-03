@@ -1,6 +1,8 @@
 
 
 
+### Frederick Varley, Stormy Weather, 1921
+<img src="https://64.media.tumblr.com/f6c4b2bbe951f86c7f350385a74d4b45/c6aa69ddbcd39155-72/s640x960/7e2e562ad17b1f996a067930e30b0eff15a60d77.jpg">
 
 ### Sailing Boats, Dieppe Harbor, 1885, John Henry Twachtman
 Medium: oil,panel
