@@ -1,3 +1,12 @@
+
+## Chen Yanning  |  陈衍宁  - 《红状》  ‘Red’,  2006 
+
+Chinese-American, b. 1945 
+
+<img src="https://64.media.tumblr.com/c7781958b578d75fbe906dad83fa5fd4/3a8b1ecab4282f46-42/s1280x1920/1dcbc258691082693ee57c877963e53bad8492db.jpg">
+
+
+
 ## Max Pietschmann (1865 - 1952)
 
 Fischzug des Polyphem, 1892
