@@ -3,7 +3,12 @@
 
 
 
+## William McGregor Paxton
+Yvonne in the Morning  oil on canvas
 
+William McGregor Paxton (June 22,1869 –1941) was an American painter and instructor who embraced the Boston School paradigm and was a co-founder of The Guild of Boston Artists.
+
+<img src="https://64.media.tumblr.com/51202dbe59493ad15981ccafa7185c60/4dcbbf75ae53794d-9d/s1280x1920/8e8b0fdaa0f5cef9611a2cf0470a6e5d9d4481ef.jpg">
 
 ## Odalisque with Slave, 1839, by ⁣⁣⁠Jean Auguste Dominique Ingres (1780-1867)⁣⁣⁠
 <img src="https://64.media.tumblr.com/de07719bddc9d9eb864fd985c5759d6a/7d483edc1d81eb15-cf/s1280x1920/d5dce67dcffa36dd8513b19189e31302d2560c83.jpg">
