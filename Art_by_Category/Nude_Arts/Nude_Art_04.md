@@ -7,7 +7,9 @@
 
 
 
+## Shane Wolf, Serenity, oil on canvas, ‘17
 
+<img src="https://64.media.tumblr.com/1e53dd8a30fe328ef88a7979cdd7e3dd/tumblr_phkpoupHLn1xl2yvho1_1280.jpg">
 
 ## Paul Laurenzi
 <img src="https://64.media.tumblr.com/535337953203608a8159765af0b50afe/1048d49f1aa6c9b2-95/s1280x1920/f3d9f0f6637cd52466423d65002ded4edd03951d.jpg">
