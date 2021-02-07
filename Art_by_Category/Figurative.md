@@ -1,5 +1,14 @@
 # Figurative Arts
 
+
+### Two Sisters    -    Henry Mortikar Rosenberg , c. 1925.
+
+American  , 1858-1947
+
+oil on canvas, 101.9 x 61.4 cm,
+
+<img src="https://64.media.tumblr.com/70f88e4a3e90b9d968c6ae159065a3f1/af8aaffb6be00f1b-14/s1280x1920/539ceb530e70cf4fe5e2fcf99acf2fc56f139ab4.jpg">
+
 ### Siesta, 1969
 
 Jean-Pierre Cassigneul (1935 - )
