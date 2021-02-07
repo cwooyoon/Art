@@ -1,5 +1,17 @@
 
 
+
+
+
+
+
+
+
+
+
+## Paul Laurenzi
+<img src="https://64.media.tumblr.com/535337953203608a8159765af0b50afe/1048d49f1aa6c9b2-95/s1280x1920/f3d9f0f6637cd52466423d65002ded4edd03951d.jpg">
+
 ## Hideki Fujii
 <img src="https://64.media.tumblr.com/247b865f17391daf9d4ecfd7db01f67d/a278ebeb4cb16b37-3e/s500x750/60fdb72815e3ff6a74953e66c6f89f86019813f9.jpg">
 
