@@ -1,7 +1,12 @@
 
 
 
+## Nakedness reveals itself. Nudity is placed on display. The nude is condemned to never being naked. Nudity is a form of dress.
+- John Berger
 
+Source: blackswaneuroparedux
+
+<img src="https://64.media.tumblr.com/4d7a2f15115af19772a1ba1f708bf543/tumblr_psdpdoXoAj1y8s062o1_540.jpg">
 
 ## William McGregor Paxton
 Yvonne in the Morning  oil on canvas
