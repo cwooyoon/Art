@@ -1,3 +1,12 @@
+
+## "Loving yourself is the beginning of a romance that will last a lifetime."
+
+Oscar Wilde
+
+Kees van Dongen, (1877-1968)
+
+<img src="https://64.media.tumblr.com/58b76c23b6f151de031e1a16b338b041/c9d26728e093f43f-05/s640x960/9c0a463d7a34a91f6dd0a0311b713fcc141946f6.jpg">
+
 ## Paul Laurenzi  
 <img src="https://64.media.tumblr.com/2a4da3a63eec897ac50dca3d9f40ec40/3ded1dbeecdf38bf-e8/s640x960/8317e7af5680399ee2b5fc0ce68793453fc6210b.jpg">
 
