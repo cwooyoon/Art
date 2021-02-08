@@ -1,3 +1,5 @@
+## Paul Laurenzi  
+<img src="https://64.media.tumblr.com/2a4da3a63eec897ac50dca3d9f40ec40/3ded1dbeecdf38bf-e8/s640x960/8317e7af5680399ee2b5fc0ce68793453fc6210b.jpg">
 
 
 ## Vittorio Polidori https://www.vittoriopolidori.it
