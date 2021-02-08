@@ -1,6 +1,7 @@
 
 
-
+## Vittorio Polidori https://www.vittoriopolidori.it
+<img src="https://64.media.tumblr.com/119ae725475e0629f5657e3bf534da19/5b888534a2801d69-d8/s2048x3072/3781f9dec2e9061763281f89b4ffc0a836d31103.jpg">
 
 ## Gideon Rubin
 <img src="https://64.media.tumblr.com/fe4d17c62973aef844c27b343cbd1fb1/97ddc78a3026f80f-c1/s2048x3072/c511ce4a4911f1dfe43b62bf2fed528244d7661d.jpg">
