@@ -1,5 +1,17 @@
 # Figurative Arts
 
+### In my favor
+I have the green secret of your eyes
+some words of hate, some words of love
+the carpet that will leave for infinity
+tonight or any night.
+
+Alexandre O’Neill - The forbidden word
+
+art Jeremy Lipking
+
+<img src="https://64.media.tumblr.com/7608e7c131513ca514b63c11b6444596/027f1261d458f5b8-58/s500x750/a17da3284c3de44695be00164210be98293e4c7e.jpg">
+
 
 ### Two Sisters    -    Henry Mortikar Rosenberg , c. 1925.
 
