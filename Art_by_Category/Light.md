@@ -1,3 +1,7 @@
+### Night, 1905, Henry Ossawa Tanner
+https://www.wikiart.org/en/henry-ossawa-tanner/night-1905
+
+<img src="https://64.media.tumblr.com/505478007cb20e9a74b1f6c5345d0f42/a8d70fdca1006f02-37/s1280x1920/4760b6256cef3acd4940171544c2550bd3b90770.jpg">
 
 
 ### Semyon Faibisovich (Russian, b. 1949), Therein Lies the Question, 1987. Oil on canvas, 78.5 x 59 in.
