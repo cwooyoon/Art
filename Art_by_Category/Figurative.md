@@ -1,5 +1,11 @@
 # Figurative Arts
 
+
+### Henry Lamb (British, 1883-1960), PHANTASY, 1912. Oil on canvas, 86,5 x 61 cm
+
+<img src="https://64.media.tumblr.com/9f3a82c1a3ce300162f86a4bdcaa0d55/8cb3d8106ffa4a56-da/s1280x1920/4c1e749d67b64d0710c46c1145f5ef617e852845.jpg:>
+          
+          
 ### In my favor
 I have the green secret of your eyes
 some words of hate, some words of love
