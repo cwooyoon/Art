@@ -4,6 +4,7 @@
 * https://www.youtube.com/watch?v=Gfc8tXr0t0E
 * https://youtu.be/GnLDgLcFXlE
 
+
 ## 동영상
 * 과학 기술은 예술의 원천, 예술은 과학 기술의 영감? / YTN 사이언스
   - https://www.youtube.com/watch?v=F91NGJNpDnw
@@ -12,4 +13,8 @@
 
 * [예술과 기술 융합주간] 기조발제
   - https://www.youtube.com/watch?v=qLgjqFF4BY0
+
+## Site
+* 탐독가를 위한 뇌용어집
+  - https://roamresearch.com/#/app/NeuroanatomyForBookReader/page/6CeqV47uX
 
